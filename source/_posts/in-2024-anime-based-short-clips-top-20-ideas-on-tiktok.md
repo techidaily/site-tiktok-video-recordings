@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Anime-Based Short Clips  Top 20 Ideas on TikTok\""
-date: 2024-05-23T02:36:35.146Z
-updated: 2024-05-24T02:36:35.146Z
+date: 2024-06-09T23:39:04.195Z
+updated: 2024-06-10T23:39:04.195Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Anime-Based Short Clips: Top 20 Ideas on TikTok\""
 excerpt: "\"This Article Describes In 2024, Anime-Based Short Clips: Top 20 Ideas on TikTok\""
 keywords: "Anime TikTok Videos,Short TikToks & Anime,Creative Anime TikTok,Popular Anime TikTok Ideas,Top Anime TikTok Clips,Trending Anime on TikTok,Innovative Anime Shorts TikTok"
-thumbnail: https://www.lifewire.com/thmb/nqCzIT810A_0M2HVQPuWncpLSlk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/victor-carvalho-DuK8VqdVsMg-unsplash-de3e8df0517b4524a5bb76fb0dc2156e.jpg
+thumbnail: https://thmb.techidaily.com/246d0000b4a8f8f8e29a0c282b538c53c7dcabe9e936ddda4c95b0a712854944.jpg
 ---
 
 ## Anime-Based Short Clips: Top 20 Ideas on TikTok

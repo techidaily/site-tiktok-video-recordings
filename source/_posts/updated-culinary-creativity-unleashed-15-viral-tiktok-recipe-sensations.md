@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Culinary Creativity Unleashed  15 Viral TikTok Recipe Sensations\""
-date: 2024-05-23T02:43:18.826Z
-updated: 2024-05-24T02:43:18.826Z
+date: 2024-06-09T23:39:06.626Z
+updated: 2024-06-10T23:39:06.626Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Culinary Creativity Unleashed: 15 Viral TikTok Recipe Sensations\""
 excerpt: "\"This Article Describes [Updated] Culinary Creativity Unleashed: 15 Viral TikTok Recipe Sensations\""
 keywords: "Culinary Creativity,TikTok Recipes,Viral Food Trends,Cooking Challenges,Social Media Chefs,Flavorful Videos,Gourmet Influencers"
-thumbnail: https://www.lifewire.com/thmb/sWAYEcqZpKywaSsbPZ2ngyPJTHA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-488000125-58b6dea85f9b586046485413-5c659d39c9e77c0001755243.jpg
+thumbnail: https://thmb.techidaily.com/e8596feeaa10b5decf0ac423846001bcbe9ce2de917f68ea7f6f367d6a2483c3.jpg
 ---
 
 ## Culinary Creativity Unleashed: 15 Viral TikTok Recipe Sensations

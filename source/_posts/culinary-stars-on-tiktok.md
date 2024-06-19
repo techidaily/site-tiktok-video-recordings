@@ -1,7 +1,7 @@
 ---
 title: "Culinary Stars on TikTok"
-date: 2024-05-23T02:24:20.424Z
-updated: 2024-05-24T02:24:20.424Z
+date: 2024-06-09T23:39:14.318Z
+updated: 2024-06-10T23:39:14.318Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Culinary Stars on TikTok"
 excerpt: "This Article Describes Culinary Stars on TikTok"
 keywords: "TikTok Chefs,Culinary Influencers,Food Star TikTok,Gastronomy TikTok,Cooking TikTok Stars,Kitchen TikTokers,Flavor TikTok Leaders"
-thumbnail: https://www.lifewire.com/thmb/INorSLVOrZE3GF-4py6nYRwatCY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/aim-aol-instant-messenger-463f8beb56de4bcf942fde0bda74f84f.png
+thumbnail: https://thmb.techidaily.com/a5a6155fc00c2184034c489f78d9dfa451dfb821e3d54808d5e05507218b1694.png
 ---
 
 ## Culinary Stars on TikTok

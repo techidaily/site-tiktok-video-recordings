@@ -1,7 +1,7 @@
 ---
 title: "[New] 82 Witty TikTok Comedy Skits"
-date: 2024-05-23T02:34:40.620Z
-updated: 2024-05-24T02:34:40.620Z
+date: 2024-06-09T23:39:00.227Z
+updated: 2024-06-10T23:39:00.227Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] 82 Witty TikTok Comedy Skits"
 excerpt: "This Article Describes [New] 82 Witty TikTok Comedy Skits"
 keywords: "ComedySkits,WittyTikTok,FunnyTikToks,SocialMediaHumor,EntertainingShorts,OnlineComedians,TikTokHumor"
-thumbnail: https://www.lifewire.com/thmb/dO9iGHsLJsJM7mUIMGLYhoLeYHk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Roku-App-iPhone-5188417-b81428f57ccf4df5ba8506352f3f6108.jpg
+thumbnail: https://thmb.techidaily.com/2ee7691e7273eb11818d41a9cf81a37cef10bbda58003f87ccdd98d9756a0aeb.jpg
 ---
 
 ## 82 Witty TikTok Comedy Skits

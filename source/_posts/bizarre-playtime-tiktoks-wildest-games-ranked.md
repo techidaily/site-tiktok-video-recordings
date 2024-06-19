@@ -1,7 +1,7 @@
 ---
 title: "\"Bizarre Playtime  TikTok's Wildest Games Ranked\""
-date: 2024-05-23T02:23:19.634Z
-updated: 2024-05-24T02:23:19.634Z
+date: 2024-06-09T23:39:05.599Z
+updated: 2024-06-10T23:39:05.599Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Bizarre Playtime: TikTok's Wildest Games Ranked\""
 excerpt: "\"This Article Describes Bizarre Playtime: TikTok's Wildest Games Ranked\""
 keywords: "Bizarre Gaming Trends,TikTok Extreme Games,Wild TikTok Challenges,Ranked Playtime Videos,Unusual TikTok Hobbies,TikTok Strange Games,Top TikTok Oddballs"
-thumbnail: https://www.lifewire.com/thmb/RRKXQWYn0C-sbzhneexTYj_P8Pw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-509041912-6b358cdad4ba438095010813f16feb17.jpg
+thumbnail: https://thmb.techidaily.com/7104f2fdb3efe51471cdd88f375c828abb8a0fae8ecd95c240012aa4c932f917.jpg
 ---
 
 ## Bizarre Playtime: TikTok's Wildest Games Ranked

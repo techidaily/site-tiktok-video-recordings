@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Edible Heritage  Time-Honored Dishes From Abroad\""
-date: 2024-05-23T02:46:33.787Z
-updated: 2024-05-24T02:46:33.787Z
+date: 2024-06-09T23:39:11.307Z
+updated: 2024-06-10T23:39:11.307Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Edible Heritage: Time-Honored Dishes From Abroad\""
 excerpt: "\"This Article Describes In 2024, Edible Heritage: Time-Honored Dishes From Abroad\""
 keywords: "\"Heritage Edible Dishes,Time-Treasured Recipes,Foreign Culinary Classics,Global Eating Traditions,Ancient Gourmet Delights,World's Forgotten Foods,Historical Cooking Culture\""
-thumbnail: https://www.lifewire.com/thmb/nY-xMmJ8eSNy6sVe0OKN-PVjSNM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/subwaysurfers-11a4d59f94d64363ad6a19cd07dfe109.jpeg
+thumbnail: https://thmb.techidaily.com/d156dc661c6f6baa9eb3b5c3ab4152f8f8f4fcdc0dbe084557e36eab0ab2db64.jpeg
 ---
 
 ## Edible Heritage: Time-Honored Dishes From Abroad

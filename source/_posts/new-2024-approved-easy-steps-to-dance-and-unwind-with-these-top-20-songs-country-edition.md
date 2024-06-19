@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Easy Steps to Dance & Unwind with These Top 20 Songs (Country Edition)\""
-date: 2024-05-23T03:44:21.288Z
-updated: 2024-05-24T03:44:21.288Z
+date: 2024-06-09T23:39:09.937Z
+updated: 2024-06-10T23:39:09.937Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Easy Steps to Dance & Unwind with These Top 20 Songs (Country Edition)\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Easy Steps to Dance & Unwind with These Top 20 Songs (Country Edition)\""
 keywords: "Country Dance Hits,Relaxing Country Tunes,Easy Country Unwind Playlist,Top 20 Country Songs,Unwind with Country Music,Dance Country Hit List,Country Song Relaxation"
-thumbnail: https://www.lifewire.com/thmb/VhWXwk4rULRvURLd-ts4rpfPSxw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-1250476440-2ff779100e984029aa752236f9791b11.jpg
+thumbnail: https://thmb.techidaily.com/580872e4bd4e21da3535470ce3b918e09ae5b8653067a4110ec11928ef11818a.jpg
 ---
 
 ## Easy Steps to Dance & Unwind with These Top 20 Songs (Country Edition)

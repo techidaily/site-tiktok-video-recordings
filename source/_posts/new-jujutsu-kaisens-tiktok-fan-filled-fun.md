@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Jujutsu Kaisen's TikTok  Fan-Filled Fun\""
-date: 2024-05-23T02:58:50.123Z
-updated: 2024-05-24T02:58:50.123Z
+date: 2024-06-09T23:39:10.605Z
+updated: 2024-06-10T23:39:10.605Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Jujutsu Kaisen's TikTok: Fan-Filled Fun\""
 excerpt: "\"This Article Describes [New] Jujutsu Kaisen's TikTok: Fan-Filled Fun\""
 keywords: "Jujutsu Kaisen TikTok Trends,Jujutsu TikTok Challenges,Kaisen TikTok Community,Jujutsu Fans on TikTok,Kaisen Memes TikTok,Jujutsu TikTok Videos,Kaisen TikTok Fun Activities"
-thumbnail: https://www.lifewire.com/thmb/Xfsodnkjdz4fAd73146-24x06ZE=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/the-windows-10-notification-center-what-it-is-and-how-to-use-it-4150756-2691e67d378e45f4875c059230b007d7.png
+thumbnail: https://thmb.techidaily.com/897a54d20c0fe274d0937962de97f84511515ba57539d3344fb75e1f209995c6.png
 ---
 
 ## Jujutsu Kaisen's TikTok: Fan-Filled Fun

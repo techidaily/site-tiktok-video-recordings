@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering Anime Aesthetics in Viral TikToks"
-date: 2024-05-23T03:00:34.926Z
-updated: 2024-05-24T03:00:34.926Z
+date: 2024-06-09T23:39:10.575Z
+updated: 2024-06-10T23:39:10.575Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] Mastering Anime Aesthetics in Viral TikToks"
 excerpt: "This Article Describes [Updated] Mastering Anime Aesthetics in Viral TikToks"
 keywords: "Anime TikTok Mastery,Viral Anime Creation,Aesthetic Anime Videos,TikTok Anime Trends,Anime Artistry Online,Anime Style for Fame,Cultivating Anime Screens"
-thumbnail: https://www.lifewire.com/thmb/z8wwDLIIrJsIzruvG1G4E0_6cfw=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/geocoin-57df048c5f9b5865166fa38b.jpg
+thumbnail: https://thmb.techidaily.com/5cf7e45072025cfbbdb41e62586d386e0a0a7b2115c18b01f985181746d9f291.jpg
 ---
 
 ## Mastering Anime Aesthetics in Viral TikToks

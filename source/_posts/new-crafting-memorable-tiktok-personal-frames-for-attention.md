@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting Memorable TikTok Personal Frames for Attention"
-date: 2024-05-23T02:42:38.965Z
-updated: 2024-05-24T02:42:38.965Z
+date: 2024-06-09T23:39:03.097Z
+updated: 2024-06-10T23:39:03.097Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Crafting Memorable TikTok Personal Frames for Attention"
 excerpt: "This Article Describes [New] Crafting Memorable TikTok Personal Frames for Attention"
 keywords: "\"TikTok Frame Design,Engaging Frames on TikTok,Memorable TikTok Frames,Personalized TikTok Graphics,Attention-Grabbing TikTok Frames,Creative TikTok Image Edits,Custom TikTok Visuals\""
-thumbnail: https://www.lifewire.com/thmb/YsX3uDiAAHjw-N4oV2S-6MBKhH4=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/Phonewithinstagram-6c34b2d8e92d4067ba96a232ac2cd966.jpg
+thumbnail: https://thmb.techidaily.com/3119c4d644ca38982b7a0f68d251b6e048a299751591496c468d996da741d28a.jpg
 ---
 
 ## Crafting Memorable TikTok Personal Frames for Attention

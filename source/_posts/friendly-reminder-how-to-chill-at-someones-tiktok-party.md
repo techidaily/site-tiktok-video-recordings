@@ -1,7 +1,7 @@
 ---
 title: "\"Friendly Reminder  How To Chill at Someone's TikTok Party\""
-date: 2024-05-23T02:26:09.924Z
-updated: 2024-05-24T02:26:09.924Z
+date: 2024-06-09T23:39:06.115Z
+updated: 2024-06-10T23:39:06.115Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Friendly Reminder: How To Chill at Someone's TikTok Party\""
 excerpt: "\"This Article Describes Friendly Reminder: How To Chill at Someone's TikTok Party\""
 keywords: "\"TikTok Relaxation Guide,Cooling Off on TikTok Events,Social Media Stress-Free,TikTok Chill Techniques,Party Zen on TikTok,Engaging TikTok Calmly,Host TikTok Peacefulness\""
-thumbnail: https://www.lifewire.com/thmb/Z4EuUdnm8Ccg3oEmjph-tIPOZts=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-turn-on-location-services-on-mac-6665787-05ee346857e148738a262a98320ba3fa.jpg
+thumbnail: https://thmb.techidaily.com/cd1e74fabebf196dc1552bdaf9aa44383a4d9bcb29a05c80c61aca058d57e616.jpg
 ---
 
 ## Friendly Reminder: How To Chill at Someone's TikTok Party

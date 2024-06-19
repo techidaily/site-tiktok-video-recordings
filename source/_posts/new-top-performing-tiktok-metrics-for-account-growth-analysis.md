@@ -1,7 +1,7 @@
 ---
 title: "[New] Top Performing TikTok Metrics for Account Growth Analysis"
-date: 2024-05-23T03:21:05.454Z
-updated: 2024-05-24T03:21:05.454Z
+date: 2024-06-09T23:39:13.455Z
+updated: 2024-06-10T23:39:13.455Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] Top Performing TikTok Metrics for Account Growth Analysis"
 excerpt: "This Article Describes [New] Top Performing TikTok Metrics for Account Growth Analysis"
 keywords: "TikTok Engagement Rates,TikTok Follower Increase,TikTok Content Performance,Account Growth on TikTok,TikTok Virality Analysis,TikTok User Interaction Metrics,Video Views by TikTok Users"
-thumbnail: https://www.lifewire.com/thmb/4m4vnDuQAvSWsqWaMN6LiF6tokY=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/rokuyoutubetv-d07ba4687f6d47649b60ad231003a984.png
+thumbnail: https://thmb.techidaily.com/97bc8f701c5a50640871957d35ec4f8e16308c84bcc3926e5048675a7dfb62d5.png
 ---
 
 ## Top Performing TikTok Metrics for Account Growth Analysis

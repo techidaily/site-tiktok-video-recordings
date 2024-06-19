@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Visual Language in TikTok  A Complete Overview\""
-date: 2024-05-23T03:27:28.819Z
-updated: 2024-05-24T03:27:28.819Z
+date: 2024-06-09T23:39:08.040Z
+updated: 2024-06-10T23:39:08.040Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes In 2024, Visual Language in TikTok: A Complete Overview\""
 excerpt: "\"This Article Describes In 2024, Visual Language in TikTok: A Complete Overview\""
 keywords: "TikTok Lingo,Visual TikTok,TikTok Vocabulary,Video Codex TikTok,TikTok Content Language,TikTok Expressive Commands,Social Media Sign Languages"
-thumbnail: https://www.lifewire.com/thmb/rmV5FQdusxtcDMfMN-dk_OtLxwI=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/MorningShow-aed160f9cfd448cc8034b23bb3073314.jpg
+thumbnail: https://thmb.techidaily.com/59a195ec28420319fea5f3f07d0383273230910a4a9660ef6c59333c64bce5cd.jpg
 ---
 
 ## Visual Language in TikTok: A Complete Overview

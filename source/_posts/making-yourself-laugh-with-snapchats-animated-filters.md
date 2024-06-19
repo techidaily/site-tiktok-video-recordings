@@ -1,7 +1,7 @@
 ---
 title: "Making Yourself Laugh with Snapchat's Animated Filters"
-date: 2024-05-23T02:19:54.728Z
-updated: 2024-05-24T02:19:54.728Z
+date: 2024-06-09T23:39:01.601Z
+updated: 2024-06-10T23:39:01.601Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Making Yourself Laugh with Snapchat's Animated Filters"
 excerpt: "This Article Describes Making Yourself Laugh with Snapchat's Animated Filters"
 keywords: "\"Funny Snaps Chat,Snapchat Animations,Joke Filters Snap,Easy Laughter Snap,Humor Snapchat Use,Cartoon Self-Fun,Giggly Snap Effects\""
-thumbnail: https://www.lifewire.com/thmb/COW2jER_hkDk8J7l3e4M5TaEqDo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/unnamed1-c0ccfef93b954cd4b380884118489270.jpg
+thumbnail: https://thmb.techidaily.com/81ce373281fd9aff14dae5d82f0fff51572cdd8c291988609733f2ca1401739f.jpg
 ---
 
 ## Making Yourself Laugh with Snapchat's Animated Filters

@@ -1,7 +1,7 @@
 ---
 title: "\"Gastronomy Goals  Leading TikTok Foodies\""
-date: 2024-05-23T02:26:22.132Z
-updated: 2024-05-24T02:26:22.132Z
+date: 2024-06-09T23:39:04.096Z
+updated: 2024-06-10T23:39:04.096Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Gastronomy Goals: Leading TikTok Foodies\""
 excerpt: "\"This Article Describes Gastronomy Goals: Leading TikTok Foodies\""
 keywords: "\"TikTok Culinary Stars,Gastronomic Influencers,Social Media Chefs,Foodie Vloggers,Online Cooking Icons,Eat-Pick Creators,TikTok Cuisine Leaders\""
-thumbnail: https://www.lifewire.com/thmb/fxTkV6WtKE82Yk7N0Qz__P0Ie4k=/180x120/filters:no_upscale():max_bytes(150000):strip_icc()/ecotech_robothands_gettyimages-1179633351_koya79_cropped_1745_v3-c9e218ef95494c239b2edfb8294fe2a1.jpg
+thumbnail: https://thmb.techidaily.com/757021be603bb0b62889fcb3393264ba25afdf3ad53016173b55a4a0650b3071.jpg
 ---
 
 ## Gastronomy Goals: Leading TikTok Foodies

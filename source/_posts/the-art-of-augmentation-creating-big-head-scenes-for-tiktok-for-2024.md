@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of Augmentation  Creating Big Head Scenes for TikTok for 2024\""
-date: 2024-05-23T03:13:35.821Z
-updated: 2024-05-24T03:13:35.821Z
+date: 2024-06-09T23:39:12.317Z
+updated: 2024-06-10T23:39:12.317Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes The Art of Augmentation: Creating Big Head Scenes for TikTok for 2024\""
 excerpt: "\"This Article Describes The Art of Augmentation: Creating Big Head Scenes for TikTok for 2024\""
 keywords: "BigHeadScenesTikTok,AugmentedRealityTikTok,TikTokAugmentArt,CreativeBigHeads,AugmentationInTikTok,TikTokAugmentation,BigHeadedContentCreation"
-thumbnail: https://www.lifewire.com/thmb/pbRceAcoghvRMMccR6CoxE6HcdQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-535152209-5c6792b6c9e77c00013b3a85.jpg
+thumbnail: https://thmb.techidaily.com/545f7379c0befa5a44cab74ccb395e1f4653a53c66c0461613d4a49d7a7f9a57.jpg
 ---
 
 ## The Art of Augmentation: Creating Big Head Scenes for TikTok

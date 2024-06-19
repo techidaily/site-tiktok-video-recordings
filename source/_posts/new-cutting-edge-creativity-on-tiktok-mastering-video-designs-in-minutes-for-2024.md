@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cutting-Edge Creativity on TikTok  Mastering Video Designs in Minutes for 2024\""
-date: 2024-05-23T03:40:47.234Z
-updated: 2024-05-24T03:40:47.234Z
+date: 2024-06-09T23:39:04.783Z
+updated: 2024-06-10T23:39:04.783Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Cutting-Edge Creativity on TikTok: Mastering Video Designs in Minutes for 2024\""
 excerpt: "\"This Article Describes [New] Cutting-Edge Creativity on TikTok: Mastering Video Designs in Minutes for 2024\""
 keywords: "TikTok Creativity,Quick Video Design,TikTok Crafting,Innovative TikTok Videos,TikTok Short Films,Minute TikTok Art,Advanced TikTok Techniques"
-thumbnail: https://www.lifewire.com/thmb/VJ-t_vsuLPzaZW1o42ed3sjMSQQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/20tipsforsavingmoneyinyour20s-1f7fd5749e914e31b38747c400f07564.jpg
+thumbnail: https://thmb.techidaily.com/c19a308589c95b1ddee27c6a5a356d350b91c656d430e8488c37e77595b9f657.jpg
 ---
 
 ## Cutting-Edge Creativity on TikTok: Mastering Video Designs in Minutes

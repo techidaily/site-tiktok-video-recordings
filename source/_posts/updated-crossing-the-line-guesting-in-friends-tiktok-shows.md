@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crossing the Line  Guesting in Friends' TikTok Shows\""
-date: 2024-05-23T02:43:11.961Z
-updated: 2024-05-24T02:43:11.961Z
+date: 2024-06-09T23:39:13.789Z
+updated: 2024-06-10T23:39:13.789Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Crossing the Line: Guesting in Friends' TikTok Shows\""
 excerpt: "\"This Article Describes [Updated] Crossing the Line: Guesting in Friends' TikTok Shows\""
 keywords: "\"TikTok Guests,Social Media Guesting,TikTok Show Participation,Crossing Friendship Boundaries,Privacy in Online Sharing,Peer-to-Peer Video Collaboration,Sharing Content on TikTok\""
-thumbnail: https://www.lifewire.com/thmb/HP1f6Y5v-9RLt9yWUuwoG4EjIsQ=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/JanetPhan-ProfessionalWeb-82f9b60035e04a31bd8db9f8df8d44a5.jpg
+thumbnail: https://thmb.techidaily.com/1ccd49c85e9212303a8d46ffca4e2f894288070bb2a09d79b62ee40d21724a7f.jpg
 ---
 
 ## Crossing the Line: Guesting in Friends' TikTok Shows

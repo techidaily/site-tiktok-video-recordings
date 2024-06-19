@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Capture Attention with Influential Tags on Social Media's TikTok"
-date: 2024-05-23T03:36:37.376Z
-updated: 2024-05-24T03:36:37.376Z
+date: 2024-06-09T23:39:07.977Z
+updated: 2024-06-10T23:39:07.977Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [New] In 2024, Capture Attention with Influential Tags on Social Media's TikTok"
 excerpt: "This Article Describes [New] In 2024, Capture Attention with Influential Tags on Social Media's TikTok"
 keywords: "TikTok Trends,Social Media Marketing,Engaging Hashtags,Viral Video Strategies,Content Captivation,Influencer Tagging,Platform Promotion"
-thumbnail: https://www.lifewire.com/thmb/Wcjd5_78cNtzmu4B2Ei9x3Ksn6I=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/samsung-led-lcd-lifestyle-19-e-992ea50f085e438f957e67d4fe96a26f.jpg
+thumbnail: https://thmb.techidaily.com/a577227bca81f1377b01a00eba21acdee9d8dfcda26cad3482a8cc47d1c6fe1b.jpg
 ---
 
 ## Capture Attention with Influential Tags on Social Media's TikTok
