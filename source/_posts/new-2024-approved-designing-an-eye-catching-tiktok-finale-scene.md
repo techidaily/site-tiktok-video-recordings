@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Designing an Eye-Catching TikTok Finale Scene\""
-date: 2024-05-23T03:41:46.453Z
-updated: 2024-05-24T03:41:46.453Z
+date: 2024-06-18T23:16:21.176Z
+updated: 2024-06-19T23:16:21.176Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Designing an Eye-Catching TikTok Finale Scene\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Designing an Eye-Catching TikTok Finale Scene\""
 keywords: "\"Final TikTok Design,Eye-Catching Video End,Stellar TikTok Closing,TikTok Finale Layout,Dynamic TikTok Conclusion,Vivid TikTok Finale,Engaging TikTok Endscene\""
-thumbnail: https://www.lifewire.com/thmb/B_1diziBQUEroVybSTOOXTd9cxc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-643997505-3dcb1b226e104d1da13825b0d9117173.jpg
+thumbnail: https://thmb.techidaily.com/4be59755ae7994bb626513b3614a3ec947be3b56430323187fb64d462d24a601.jpg
 ---
 
 ## Designing an Eye-Catching TikTok Finale Scene

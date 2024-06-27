@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Surprise Refresh on TikTok – Can I See Old Videos?"
-date: 2024-05-23T04:15:54.750Z
-updated: 2024-05-24T04:15:54.750Z
+date: 2024-06-18T23:16:23.384Z
+updated: 2024-06-19T23:16:23.384Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] In 2024, Surprise Refresh on TikTok – Can I See Old Videos?"
 excerpt: "This Article Describes [Updated] In 2024, Surprise Refresh on TikTok – Can I See Old Videos?"
 keywords: "TikTok Refresh,Past TikTok Videos,TikTok Replay,Accessing Old TikToks,See Past TikToks,TikTok History View,Reload TikTok Videos"
-thumbnail: https://www.lifewire.com/thmb/Nc8KmupM-nyJApRyNJ45Wt2qOwg=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/vlcsnap-2021-02-18-15h04m50s440-ea5dd4e1fdb14223b1bc981ff9c11455.png
+thumbnail: https://thmb.techidaily.com/775033cec734e193d493811f769dcaa65d428fba2286e40a488d59f8b08228ae.png
 ---
 
 ## Surprise Refresh on TikTok – Can I See Old Videos?
@@ -335,7 +335,7 @@ If you want your Tiktok video to go viral, you need to know what is getting vira
 
 **Tiktok Search Bar:** The best way to find a viral Tiktok topic is to visit the “Discover'' page on Tiktok. Here you’ll get to see all the trending hashtags and sounds.
 
-![visit “discover” page on tiktok ](https://images.wondershare.com/filmora/article-images/2022/03/1-complete-guide-for-tiktok-elements.png)
+![visit “discover” page on tiktok](https://images.wondershare.com/filmora/article-images/2022/03/1-complete-guide-for-tiktok-elements.png)
 
 This also includes trending challenges. So, if you want to get noticed on Tiktok, use a viral sound or do a viral challenge!
 

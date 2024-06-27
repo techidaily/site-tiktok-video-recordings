@@ -1,7 +1,7 @@
 ---
 title: "Choreographing the Finale for Your TikTok Story for 2024"
-date: 2024-05-23T02:40:52.922Z
-updated: 2024-05-24T02:40:52.922Z
+date: 2024-06-18T23:16:22.774Z
+updated: 2024-06-19T23:16:22.774Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Choreographing the Finale for Your TikTok Story for 2024"
 excerpt: "This Article Describes Choreographing the Finale for Your TikTok Story for 2024"
 keywords: "TikTok Dance Finale,Choreography TikTok,Final TikTok Dance,TikTok Performance Ending,Social Media Dance Choreo,Storytelling with TikTok Dances,Engaging TikTok Conclusion"
-thumbnail: https://www.lifewire.com/thmb/VQxgGoC9v6PZDxcDaOZkNzYORfU=/540x405/filters:no_upscale():max_bytes(150000):strip_icc()/how-to-connect-multiple-bluetooth-speakers-4173788-311e11fa61fd439f9528c27402f47cb9.png
+thumbnail: https://thmb.techidaily.com/e31e2df1b932fa534e864f0527ff09c3f70b9b1af5b4d099ffd7c19407e1d66e.png
 ---
 
 ## Choreographing the Finale for Your TikTok Story

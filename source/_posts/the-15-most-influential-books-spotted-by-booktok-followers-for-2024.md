@@ -1,7 +1,7 @@
 ---
 title: "The 15 Most Influential Books Spotted by BookTok Followers for 2024"
-date: 2024-05-23T03:13:30.604Z
-updated: 2024-05-24T03:13:30.604Z
+date: 2024-06-18T23:15:56.489Z
+updated: 2024-06-19T23:15:56.489Z
 tags:
   - ai video
   - ai tiktok
@@ -12,12 +12,12 @@ categories:
 description: "This Article Describes The 15 Most Influential Books Spotted by BookTok Followers for 2024"
 excerpt: "This Article Describes The 15 Most Influential Books Spotted by BookTok Followers for 2024"
 keywords: "\"Top Influential Reads,BookTok Favorites,Impactful Literature,Popular Book Picks,Best Books Discussed,BookTrending Titles,Must-Read Lists\""
-thumbnail: https://www.lifewire.com/thmb/DNPG_95493kmlqsKtggkKrArSlc=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/bardgoogledocs-e78434a9fb304eadb5960c6f4402fd45.jpg
+thumbnail: https://thmb.techidaily.com/20a1161c2d60e760a9d2866e0269161f0abce5bf45e09881a1912be2c7963695.jpg
 ---
 
 ## The 15 Most Influential Books Spotted by BookTok Followers
 
-##### Versatile Video Editor - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+##### Versatile Video Editor - Wondershare Filmora
 
 An easy yet powerful editor
 

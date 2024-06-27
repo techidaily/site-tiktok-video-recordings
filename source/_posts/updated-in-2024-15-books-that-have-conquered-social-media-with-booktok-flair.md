@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, 15 Books That Have Conquered Social Media with BookTok Flair"
-date: 2024-05-23T03:29:04.659Z
-updated: 2024-05-24T03:29:04.659Z
+date: 2024-06-18T23:16:01.900Z
+updated: 2024-06-19T23:16:01.900Z
 tags:
   - ai video
   - ai tiktok
@@ -12,12 +12,12 @@ categories:
 description: "This Article Describes [Updated] In 2024, 15 Books That Have Conquered Social Media with BookTok Flair"
 excerpt: "This Article Describes [Updated] In 2024, 15 Books That Have Conquered Social Media with BookTok Flair"
 keywords: "\"BookTok Success Stories,Viral Books on TikTok,Trending Literary Titles,Binge-Reading Phenomenon,Social Media Book Hits,Popular Reading Influencers,Flair in Book Sharing\""
-thumbnail: https://www.lifewire.com/thmb/n9iwgsUaqixGCfd3WwG5mVHUeCM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/samsung-smart-hub-home-screen-amazon-a878f50f6134442b843b7678d5356cae.jpg
+thumbnail: https://thmb.techidaily.com/6e5f95b25124810982ee054b31aff132061c491b9479b9ba216941d7d9600153.jpg
 ---
 
 ## 15 Books That Have Conquered Social Media with BookTok Flair
 
-##### Versatile Video Editor - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+##### Versatile Video Editor - Wondershare Filmora
 
 An easy yet powerful editor
 

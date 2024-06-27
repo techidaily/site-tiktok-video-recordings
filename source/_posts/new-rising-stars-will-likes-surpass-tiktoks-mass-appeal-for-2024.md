@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Rising Stars  Will Likes Surpass TikTok's Mass Appeal for 2024\""
-date: 2024-05-23T04:10:37.556Z
-updated: 2024-05-24T04:10:37.556Z
+date: 2024-06-18T23:16:10.845Z
+updated: 2024-06-19T23:16:10.845Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] Rising Stars: Will Likes Surpass TikTok's Mass Appeal for 2024\""
 excerpt: "\"This Article Describes [New] Rising Stars: Will Likes Surpass TikTok's Mass Appeal for 2024\""
 keywords: "Star Rising Trends,Like Popularity Shift,TikTok Vs. Likes,Social Media Competition,Video Content Evolution,Appeal in Platforms,Mass Engagement Analysis"
-thumbnail: https://www.lifewire.com/thmb/t_bI7HCvhkb8SqhKHeK7E2E9LWo=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-1271990303-32f5706e9f8f4bdf940b6eedc13f5e67.jpg
+thumbnail: https://thmb.techidaily.com/4285b91a5eec460b353e6cabe3924d845457ea4dd57027d124c1eda481947485.jpg
 ---
 
 ## Rising Stars: Will Likes Surpass TikTok's Mass Appeal?

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Global Gastronomy Guide  Iconic Dishes and Recipes\""
-date: 2024-05-23T02:54:27.373Z
-updated: 2024-05-24T02:54:27.373Z
+date: 2024-06-18T23:16:06.619Z
+updated: 2024-06-19T23:16:06.619Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] Global Gastronomy Guide: Iconic Dishes and Recipes\""
 excerpt: "\"This Article Describes [Updated] Global Gastronomy Guide: Iconic Dishes and Recipes\""
 keywords: "Food World Guide,Global Chef Tips,Iconic Cuisine,Famous Eats,Gastronomy Staples,Recipe Mastery,Dish Insights"
-thumbnail: https://www.lifewire.com/thmb/CjqB0Pk0fUj0Tw_8pdFRcjZZ25A=/180x120/filters:no_upscale():max_bytes(150000):strip_icc()/WomeninGaming_GettyImages-1395688501_Maskot_Getty_CROPPED-879a39555c2b4c869413033cb8b13112.jpg
+thumbnail: https://thmb.techidaily.com/40e0889241e76e5d59eca7143e9d07b55913d6df3d4a890109030eaaab30cafd.jpg
 ---
 
 ## Global Gastronomy Guide: Iconic Dishes and Recipes
