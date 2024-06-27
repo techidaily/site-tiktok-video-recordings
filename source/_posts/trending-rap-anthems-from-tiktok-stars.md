@@ -1,7 +1,7 @@
 ---
 title: "Trending Rap Anthems From TikTok Stars"
-date: 2024-05-23T02:32:06.851Z
-updated: 2024-05-24T02:32:06.851Z
+date: 2024-06-26T14:58:06.167Z
+updated: 2024-06-27T14:58:06.167Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Trending Rap Anthems From TikTok Stars"
 excerpt: "This Article Describes Trending Rap Anthems From TikTok Stars"
 keywords: "\"TikTok Rap Hits,Trending Rap Tracks,Pop Culture Rhymes,Rap Song Virality,Youthful Rap Beats,Chart-Topping Lyrics,Social Media Songs\""
-thumbnail: https://www.lifewire.com/thmb/r5-nbFpZcg3uV6IKilx2-E6xQtA=/400x300/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/GettyImages-185223738-56a691fd5f9b58b7d0e3a1d9.jpg
+thumbnail: https://thmb.techidaily.com/0f399835ae801930fc09d856b55526ca68007b6aa28f7cfc8442056063114a14.jpg
 ---
 
 ## Trending Rap Anthems From TikTok Stars

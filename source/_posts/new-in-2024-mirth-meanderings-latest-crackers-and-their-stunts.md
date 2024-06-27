@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Mirth Meanderings  Latest Crackers and Their Stunts\""
-date: 2024-05-23T04:04:06.395Z
-updated: 2024-05-24T04:04:06.395Z
+date: 2024-06-26T14:58:01.959Z
+updated: 2024-06-27T14:58:01.959Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Mirth Meanderings: Latest Crackers and Their Stunts\""
 excerpt: "\"This Article Describes [New] In 2024, Mirth Meanderings: Latest Crackers and Their Stunts\""
 keywords: "Mirth Meanderings,Latest Crackers,Stunt Showcases,Comedy Tactics,Joke Trends,Clever Puns,Humor Highlights"
-thumbnail: https://www.lifewire.com/thmb/i2IGPKkZDfecNDZYHJ6esgN19Io=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/pixel8-6ac6481299514e17aee036b125a33366.jpg
+thumbnail: https://thmb.techidaily.com/cf530c2c593b6932cef8db0cdf4cd19063a18ed96567f34da25c1f69a7f2e22f.jpg
 ---
 
 ## Mirth Meanderings: Latest Crackers and Their Stunts
@@ -41,7 +41,7 @@ This trend started out with Khaby Lame, who posted a video during the pandemic w
 
 Zoom meeting mishaps are one of the most hilarious trends that took TikTok by storm. In the initial pandemic phase, people were getting accustomed to the online world where using zoom was a big challenge for a lot of us. Click [here](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1) to see a mishap.
 
-![Zoom Meetings ](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
+![Zoom Meetings](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 2: Zoom Meetings_](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
 
@@ -51,7 +51,7 @@ However, luckily for us, this challenge gave us a lot of hilarious moments as we
 
 A user asked a question, "What’s a video that lives in your head rent-free?"
 
-![Videos that live in your head rent-free ](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
+![Videos that live in your head rent-free](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 3: Videos that live in your head rent-free_](https://www.tiktok.com/@tally%5Fnawrocki/video/6922644131298692357?referer%5Furl=https%3A%2F%2Fhotinsocialmedia.com%2F&referer%5Fvideo%5Fid=6922644131298692357&refer=embed)
 
@@ -113,7 +113,7 @@ If you like funny impersonations, “whatchugotforme” is her handle. So, go fo
 
 Lucas and Marcus Dobre are twin brothers who started a YouTube channel along with their two other brothers. They now have a TikTok account with 38.4 million followers. They make different comedy videos, do fun challenges, and also make vlogs.
 
-![“ID pics vs real life” ](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
+![“ID pics vs real life”](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 9: “ID pics vs real life”_](https://www.tiktok.com/@dobretwins/video/7036149636691938606?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
 
@@ -181,15 +181,13 @@ This became his signature move and gained so much popularity that he is now one 
 
 ## Conclusion
 
-Tiktok is an amazing social networking website that provides its users an opportunity to express themselves in a very creative manner with a lot of ease. The main purpose of Tiktok was to give people a platform for enjoyment in the form of short videos, and that is exactly what it did!
-
-[_Figure 1: Khaby Lame Tiktok Video_](https://www.tiktok.com/@khaby.lame/video/7038280908994120966?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
+Tiktok is an amazing social networking website that provides its users an opportunity to express themselves in a very creative manner with a lot of ease. The main purpose of Tiktok was to give people a platform for enjoyment in the form of short videos, and that is exactly what it did ![_Figure 1: Khaby Lame Tiktok Video_](https://www.tiktok.com/@khaby.lame/video/7038280908994120966?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
 
 ### 2\. Zoom Meeting Mishaps
 
 Zoom meeting mishaps are one of the most hilarious trends that took TikTok by storm. In the initial pandemic phase, people were getting accustomed to the online world where using zoom was a big challenge for a lot of us. Click [here](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1) to see a mishap.
 
-![Zoom Meetings ](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
+![Zoom Meetings](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 2: Zoom Meetings_](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
 
@@ -199,7 +197,7 @@ However, luckily for us, this challenge gave us a lot of hilarious moments as we
 
 A user asked a question, "What’s a video that lives in your head rent-free?"
 
-![Videos that live in your head rent-free ](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
+![Videos that live in your head rent-free](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 3: Videos that live in your head rent-free_](https://www.tiktok.com/@tally%5Fnawrocki/video/6922644131298692357?referer%5Furl=https%3A%2F%2Fhotinsocialmedia.com%2F&referer%5Fvideo%5Fid=6922644131298692357&refer=embed)
 
@@ -261,7 +259,7 @@ If you like funny impersonations, “whatchugotforme” is her handle. So, go fo
 
 Lucas and Marcus Dobre are twin brothers who started a YouTube channel along with their two other brothers. They now have a TikTok account with 38.4 million followers. They make different comedy videos, do fun challenges, and also make vlogs.
 
-![“ID pics vs real life” ](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
+![“ID pics vs real life”](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 9: “ID pics vs real life”_](https://www.tiktok.com/@dobretwins/video/7036149636691938606?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
 
@@ -329,15 +327,13 @@ This became his signature move and gained so much popularity that he is now one 
 
 ## Conclusion
 
-Tiktok is an amazing social networking website that provides its users an opportunity to express themselves in a very creative manner with a lot of ease. The main purpose of Tiktok was to give people a platform for enjoyment in the form of short videos, and that is exactly what it did!
-
-[_Figure 1: Khaby Lame Tiktok Video_](https://www.tiktok.com/@khaby.lame/video/7038280908994120966?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
+Tiktok is an amazing social networking website that provides its users an opportunity to express themselves in a very creative manner with a lot of ease. The main purpose of Tiktok was to give people a platform for enjoyment in the form of short videos, and that is exactly what it did ![_Figure 1: Khaby Lame Tiktok Video_](https://www.tiktok.com/@khaby.lame/video/7038280908994120966?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
 
 ### 2\. Zoom Meeting Mishaps
 
 Zoom meeting mishaps are one of the most hilarious trends that took TikTok by storm. In the initial pandemic phase, people were getting accustomed to the online world where using zoom was a big challenge for a lot of us. Click [here](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1) to see a mishap.
 
-![Zoom Meetings ](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
+![Zoom Meetings](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 2: Zoom Meetings_](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
 
@@ -347,7 +343,7 @@ However, luckily for us, this challenge gave us a lot of hilarious moments as we
 
 A user asked a question, "What’s a video that lives in your head rent-free?"
 
-![Videos that live in your head rent-free ](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
+![Videos that live in your head rent-free](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 3: Videos that live in your head rent-free_](https://www.tiktok.com/@tally%5Fnawrocki/video/6922644131298692357?referer%5Furl=https%3A%2F%2Fhotinsocialmedia.com%2F&referer%5Fvideo%5Fid=6922644131298692357&refer=embed)
 
@@ -409,7 +405,7 @@ If you like funny impersonations, “whatchugotforme” is her handle. So, go fo
 
 Lucas and Marcus Dobre are twin brothers who started a YouTube channel along with their two other brothers. They now have a TikTok account with 38.4 million followers. They make different comedy videos, do fun challenges, and also make vlogs.
 
-![“ID pics vs real life” ](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
+![“ID pics vs real life”](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 9: “ID pics vs real life”_](https://www.tiktok.com/@dobretwins/video/7036149636691938606?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
 
@@ -477,15 +473,13 @@ This became his signature move and gained so much popularity that he is now one 
 
 ## Conclusion
 
-Tiktok is an amazing social networking website that provides its users an opportunity to express themselves in a very creative manner with a lot of ease. The main purpose of Tiktok was to give people a platform for enjoyment in the form of short videos, and that is exactly what it did!
-
-[_Figure 1: Khaby Lame Tiktok Video_](https://www.tiktok.com/@khaby.lame/video/7038280908994120966?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
+Tiktok is an amazing social networking website that provides its users an opportunity to express themselves in a very creative manner with a lot of ease. The main purpose of Tiktok was to give people a platform for enjoyment in the form of short videos, and that is exactly what it did ![_Figure 1: Khaby Lame Tiktok Video_](https://www.tiktok.com/@khaby.lame/video/7038280908994120966?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
 
 ### 2\. Zoom Meeting Mishaps
 
 Zoom meeting mishaps are one of the most hilarious trends that took TikTok by storm. In the initial pandemic phase, people were getting accustomed to the online world where using zoom was a big challenge for a lot of us. Click [here](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1) to see a mishap.
 
-![Zoom Meetings ](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
+![Zoom Meetings](https://images.wondershare.com/filmora/article-images/2022/03/2-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 2: Zoom Meetings_](https://www.tiktok.com/@jeffyracks/video/6806680007990070534?is%5Fcopy%5Furl=1&is%5Ffrom%5Fwebapp=v1)
 
@@ -495,7 +489,7 @@ However, luckily for us, this challenge gave us a lot of hilarious moments as we
 
 A user asked a question, "What’s a video that lives in your head rent-free?"
 
-![Videos that live in your head rent-free ](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
+![Videos that live in your head rent-free](https://images.wondershare.com/filmora/article-images/2022/03/3-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 3: Videos that live in your head rent-free_](https://www.tiktok.com/@tally%5Fnawrocki/video/6922644131298692357?referer%5Furl=https%3A%2F%2Fhotinsocialmedia.com%2F&referer%5Fvideo%5Fid=6922644131298692357&refer=embed)
 
@@ -557,7 +551,7 @@ If you like funny impersonations, “whatchugotforme” is her handle. So, go fo
 
 Lucas and Marcus Dobre are twin brothers who started a YouTube channel along with their two other brothers. They now have a TikTok account with 38.4 million followers. They make different comedy videos, do fun challenges, and also make vlogs.
 
-![“ID pics vs real life” ](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
+![“ID pics vs real life”](https://images.wondershare.com/filmora/article-images/2022/03/9-top-tiktok-comedy-trends-and-stars.png)
 
 [_Figure 9: “ID pics vs real life”_](https://www.tiktok.com/@dobretwins/video/7036149636691938606?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
 
@@ -763,9 +757,7 @@ The recipe starts off by cutting an ear of corn into multiple pieces, then addin
 
 The food trends on Tiktok are useful as well as mouthwatering. You can learn so many hacks for cooking delicious meals for yourself and your family. It also makes bland food more interesting and enjoyable.
 
-Furthermore, most of the recipes for snacks are extremely easy to make and take no time to cook. So, let’s get cooking and fill our homes with the aroma of good food!
-
-[_Figure 1: Colored Cloud Bread_](https://www.tiktok.com/@pattygurlz/video/7018027285605272859?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
+Furthermore, most of the recipes for snacks are extremely easy to make and take no time to cook. So, let’s get cooking and fill our homes with the aroma of good food ![_Figure 1: Colored Cloud Bread_](https://www.tiktok.com/@pattygurlz/video/7018027285605272859?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
 
 All you need is 4 ingredients and 25 minutes in the oven, and you will get the softest, fluffiest cloud bread. It literally looks like a cloud from the sky! It quickly became a trend for people to make cloud breads by using different colors. The hashtag #cloudbread has 3.3 billion views.
 
@@ -871,9 +863,7 @@ The recipe starts off by cutting an ear of corn into multiple pieces, then addin
 
 The food trends on Tiktok are useful as well as mouthwatering. You can learn so many hacks for cooking delicious meals for yourself and your family. It also makes bland food more interesting and enjoyable.
 
-Furthermore, most of the recipes for snacks are extremely easy to make and take no time to cook. So, let’s get cooking and fill our homes with the aroma of good food!
-
-[_Figure 1: Colored Cloud Bread_](https://www.tiktok.com/@pattygurlz/video/7018027285605272859?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
+Furthermore, most of the recipes for snacks are extremely easy to make and take no time to cook. So, let’s get cooking and fill our homes with the aroma of good food ![_Figure 1: Colored Cloud Bread_](https://www.tiktok.com/@pattygurlz/video/7018027285605272859?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
 
 All you need is 4 ingredients and 25 minutes in the oven, and you will get the softest, fluffiest cloud bread. It literally looks like a cloud from the sky! It quickly became a trend for people to make cloud breads by using different colors. The hashtag #cloudbread has 3.3 billion views.
 
@@ -979,9 +969,7 @@ The recipe starts off by cutting an ear of corn into multiple pieces, then addin
 
 The food trends on Tiktok are useful as well as mouthwatering. You can learn so many hacks for cooking delicious meals for yourself and your family. It also makes bland food more interesting and enjoyable.
 
-Furthermore, most of the recipes for snacks are extremely easy to make and take no time to cook. So, let’s get cooking and fill our homes with the aroma of good food!
-
-[_Figure 1: Colored Cloud Bread_](https://www.tiktok.com/@pattygurlz/video/7018027285605272859?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
+Furthermore, most of the recipes for snacks are extremely easy to make and take no time to cook. So, let’s get cooking and fill our homes with the aroma of good food ![_Figure 1: Colored Cloud Bread_](https://www.tiktok.com/@pattygurlz/video/7018027285605272859?is%5Ffrom%5Fwebapp=1&sender%5Fdevice=pc&web%5Fid7072000409191319041)
 
 All you need is 4 ingredients and 25 minutes in the oven, and you will get the softest, fluffiest cloud bread. It literally looks like a cloud from the sky! It quickly became a trend for people to make cloud breads by using different colors. The hashtag #cloudbread has 3.3 billion views.
 

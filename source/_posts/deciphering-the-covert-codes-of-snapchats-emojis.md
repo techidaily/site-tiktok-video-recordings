@@ -1,7 +1,7 @@
 ---
 title: "Deciphering the Covert Codes of Snapchat's Emojis"
-date: 2024-06-18T23:17:20.755Z
-updated: 2024-06-19T23:17:20.755Z
+date: 2024-06-26T14:58:05.749Z
+updated: 2024-06-27T14:58:05.749Z
 tags:
   - ai video
   - ai snapchat
@@ -17,9 +17,7 @@ thumbnail: https://thmb.techidaily.com/a4a765e99a54a380752423d8d88b32966a3339aa9
 
 ## Deciphering the Covert Codes of Snapchat's Emojis
 
-# Snapchat Emojis: the Real Meaning You May not Know
-
-![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+# Snapchat Emojis: the Real Meaning You May not Know ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
 

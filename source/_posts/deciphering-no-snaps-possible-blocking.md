@@ -1,7 +1,7 @@
 ---
 title: "Deciphering No Snaps, Possible Blocking"
-date: 2024-05-23T02:18:45.083Z
-updated: 2024-05-24T02:18:45.083Z
+date: 2024-06-26T14:58:04.727Z
+updated: 2024-06-27T14:58:04.727Z
 tags:
   - ai video
   - ai snapchat
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes Deciphering No Snaps, Possible Blocking"
 excerpt: "This Article Describes Deciphering No Snaps, Possible Blocking"
 keywords: "Blocking Tech Impacts,Snaps Privacy Concerns,Social Media Blocking Effects,Snapchat Communication Breakdown,No Snap Notification Issues,User Blocking on Snapchat,Snap Communication Disruption"
-thumbnail: https://www.lifewire.com/thmb/6JkPT4dEHwpn6oTv-PezQuUw_Ms=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/carpower-56fee3423df78c7d9e441d4f.jpg
+thumbnail: https://thmb.techidaily.com/4f902a43927aa6bf193e9d8b7e9fe3404a519e31c80aea16a8f7ebda50148e4a.jpg
 ---
 
 ## Deciphering No Snaps, Possible Blocking
@@ -39,9 +39,7 @@ Being blocked on Snapchat, on the other hand, is a very other matter. This indic
 
 ## How can you know if someone on Snapchat has banned you?
 
-### 1.Check your recent chats with them
-
-![way1-check-your-recent-chats-with-them](https://images.wondershare.com/filmora/article-images/way1-check-your-recent-chats-with-them.png)
+### 1.Check your recent chats with them ![way1-check-your-recent-chats-with-them](https://images.wondershare.com/filmora/article-images/way1-check-your-recent-chats-with-them.png)
 
 It's possible that the other user deleted their account or was barred if your recent conversations don't appear despite being preserved.
 
@@ -57,9 +55,7 @@ To see this list, just go to your profile & click on My Friends. If they don't s
 
 Searching for someone active on Instagram may need you to read their recent stories first. If you're unable to, you've probably been blocked.
 
-### 5. Verify whether you can see their Snapchat rating
-
-![way5-verify-whether-you-can-see-their-snapchat-rating](https://images.wondershare.com/filmora/article-images/way5-verify-whether-you-can-see-their-snapchat-rating.png)
+### 5. Verify whether you can see their Snapchat rating ![way5-verify-whether-you-can-see-their-snapchat-rating](https://images.wondershare.com/filmora/article-images/way5-verify-whether-you-can-see-their-snapchat-rating.png)
 
 Snapchat scores are only visible to friends. Otherwise, your Snapchat account has been suspended or terminated.
 
@@ -69,9 +65,7 @@ It's possible they deactivated their account to ensure you can use a different a
 
 Snapchat hides the fact that someone has banned you from view. I really hope this information was useful to you in some manner. Approaching the individual who has obstructed you should be done with caution. Keep in mind why you were first barred, and attempt to avoid making the same error repeatedly.
 
-### 7. Look for the person's username and full name
-
-![way7-look-for-persons-username-full-name](https://images.wondershare.com/filmora/article-images/way7-look-for-persons-username-full-name.png)
+### 7. Look for the person's username and full name ![way7-look-for-persons-username-full-name](https://images.wondershare.com/filmora/article-images/way7-look-for-persons-username-full-name.png)
 
 When you search for someone on Snapchat and they've banned you, you won't be able to find them. Searching for them should bring them up even if they've unfriended you on Facebook.
 
@@ -115,9 +109,7 @@ Being blocked on Snapchat, on the other hand, is a very other matter. This indic
 
 ## How can you know if someone on Snapchat has banned you?
 
-### 1.Check your recent chats with them
-
-![way1-check-your-recent-chats-with-them](https://images.wondershare.com/filmora/article-images/way1-check-your-recent-chats-with-them.png)
+### 1.Check your recent chats with them ![way1-check-your-recent-chats-with-them](https://images.wondershare.com/filmora/article-images/way1-check-your-recent-chats-with-them.png)
 
 It's possible that the other user deleted their account or was barred if your recent conversations don't appear despite being preserved.
 
@@ -133,9 +125,7 @@ To see this list, just go to your profile & click on My Friends. If they don't s
 
 Searching for someone active on Instagram may need you to read their recent stories first. If you're unable to, you've probably been blocked.
 
-### 5. Verify whether you can see their Snapchat rating
-
-![way5-verify-whether-you-can-see-their-snapchat-rating](https://images.wondershare.com/filmora/article-images/way5-verify-whether-you-can-see-their-snapchat-rating.png)
+### 5. Verify whether you can see their Snapchat rating ![way5-verify-whether-you-can-see-their-snapchat-rating](https://images.wondershare.com/filmora/article-images/way5-verify-whether-you-can-see-their-snapchat-rating.png)
 
 Snapchat scores are only visible to friends. Otherwise, your Snapchat account has been suspended or terminated.
 
@@ -145,9 +135,7 @@ It's possible they deactivated their account to ensure you can use a different a
 
 Snapchat hides the fact that someone has banned you from view. I really hope this information was useful to you in some manner. Approaching the individual who has obstructed you should be done with caution. Keep in mind why you were first barred, and attempt to avoid making the same error repeatedly.
 
-### 7. Look for the person's username and full name
-
-![way7-look-for-persons-username-full-name](https://images.wondershare.com/filmora/article-images/way7-look-for-persons-username-full-name.png)
+### 7. Look for the person's username and full name ![way7-look-for-persons-username-full-name](https://images.wondershare.com/filmora/article-images/way7-look-for-persons-username-full-name.png)
 
 When you search for someone on Snapchat and they've banned you, you won't be able to find them. Searching for them should bring them up even if they've unfriended you on Facebook.
 
@@ -191,9 +179,7 @@ Being blocked on Snapchat, on the other hand, is a very other matter. This indic
 
 ## How can you know if someone on Snapchat has banned you?
 
-### 1.Check your recent chats with them
-
-![way1-check-your-recent-chats-with-them](https://images.wondershare.com/filmora/article-images/way1-check-your-recent-chats-with-them.png)
+### 1.Check your recent chats with them ![way1-check-your-recent-chats-with-them](https://images.wondershare.com/filmora/article-images/way1-check-your-recent-chats-with-them.png)
 
 It's possible that the other user deleted their account or was barred if your recent conversations don't appear despite being preserved.
 
@@ -209,9 +195,7 @@ To see this list, just go to your profile & click on My Friends. If they don't s
 
 Searching for someone active on Instagram may need you to read their recent stories first. If you're unable to, you've probably been blocked.
 
-### 5. Verify whether you can see their Snapchat rating
-
-![way5-verify-whether-you-can-see-their-snapchat-rating](https://images.wondershare.com/filmora/article-images/way5-verify-whether-you-can-see-their-snapchat-rating.png)
+### 5. Verify whether you can see their Snapchat rating ![way5-verify-whether-you-can-see-their-snapchat-rating](https://images.wondershare.com/filmora/article-images/way5-verify-whether-you-can-see-their-snapchat-rating.png)
 
 Snapchat scores are only visible to friends. Otherwise, your Snapchat account has been suspended or terminated.
 
@@ -221,9 +205,7 @@ It's possible they deactivated their account to ensure you can use a different a
 
 Snapchat hides the fact that someone has banned you from view. I really hope this information was useful to you in some manner. Approaching the individual who has obstructed you should be done with caution. Keep in mind why you were first barred, and attempt to avoid making the same error repeatedly.
 
-### 7. Look for the person's username and full name
-
-![way7-look-for-persons-username-full-name](https://images.wondershare.com/filmora/article-images/way7-look-for-persons-username-full-name.png)
+### 7. Look for the person's username and full name ![way7-look-for-persons-username-full-name](https://images.wondershare.com/filmora/article-images/way7-look-for-persons-username-full-name.png)
 
 When you search for someone on Snapchat and they've banned you, you won't be able to find them. Searching for them should bring them up even if they've unfriended you on Facebook.
 
@@ -267,9 +249,7 @@ Being blocked on Snapchat, on the other hand, is a very other matter. This indic
 
 ## How can you know if someone on Snapchat has banned you?
 
-### 1.Check your recent chats with them
-
-![way1-check-your-recent-chats-with-them](https://images.wondershare.com/filmora/article-images/way1-check-your-recent-chats-with-them.png)
+### 1.Check your recent chats with them ![way1-check-your-recent-chats-with-them](https://images.wondershare.com/filmora/article-images/way1-check-your-recent-chats-with-them.png)
 
 It's possible that the other user deleted their account or was barred if your recent conversations don't appear despite being preserved.
 
@@ -285,9 +265,7 @@ To see this list, just go to your profile & click on My Friends. If they don't s
 
 Searching for someone active on Instagram may need you to read their recent stories first. If you're unable to, you've probably been blocked.
 
-### 5. Verify whether you can see their Snapchat rating
-
-![way5-verify-whether-you-can-see-their-snapchat-rating](https://images.wondershare.com/filmora/article-images/way5-verify-whether-you-can-see-their-snapchat-rating.png)
+### 5. Verify whether you can see their Snapchat rating ![way5-verify-whether-you-can-see-their-snapchat-rating](https://images.wondershare.com/filmora/article-images/way5-verify-whether-you-can-see-their-snapchat-rating.png)
 
 Snapchat scores are only visible to friends. Otherwise, your Snapchat account has been suspended or terminated.
 
@@ -297,9 +275,7 @@ It's possible they deactivated their account to ensure you can use a different a
 
 Snapchat hides the fact that someone has banned you from view. I really hope this information was useful to you in some manner. Approaching the individual who has obstructed you should be done with caution. Keep in mind why you were first barred, and attempt to avoid making the same error repeatedly.
 
-### 7. Look for the person's username and full name
-
-![way7-look-for-persons-username-full-name](https://images.wondershare.com/filmora/article-images/way7-look-for-persons-username-full-name.png)
+### 7. Look for the person's username and full name ![way7-look-for-persons-username-full-name](https://images.wondershare.com/filmora/article-images/way7-look-for-persons-username-full-name.png)
 
 When you search for someone on Snapchat and they've banned you, you won't be able to find them. Searching for them should bring them up even if they've unfriended you on Facebook.
 
