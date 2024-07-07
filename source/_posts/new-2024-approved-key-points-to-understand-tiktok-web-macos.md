@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Key Points to Understand TikTok Web (macOS)\""
-date: 2024-05-23T03:59:14.262Z
-updated: 2024-05-24T03:59:14.262Z
+date: 2024-07-06T02:19:19.318Z
+updated: 2024-07-07T02:19:19.318Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] 2024 Approved: Key Points to Understand TikTok Web (macOS)\""
 excerpt: "\"This Article Describes [New] 2024 Approved: Key Points to Understand TikTok Web (macOS)\""
 keywords: "TikTok macOS Basics,TikTok App Guide Mac,TikTok for Mac Users,Understanding TikTok iOS/macOS,TikTok App Mac Navigation,Essential TikTok Mac Features,Mastering TikTok on Mac"
-thumbnail: https://www.lifewire.com/thmb/X9r-EBgpSwWythkpkXXJDKFU7oM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/google-meet-laptops-6a8fc642d63044d681d29bd53aab3f03.png
+thumbnail: https://thmb.techidaily.com/3fc4ce39cf32e051d437369f1ad4829a21ac17b8d3ad76e322c0705c64d5daa2.png
 ---
 
 ## Key Points to Understand TikTok Web (macOS)
@@ -78,7 +78,7 @@ If you are unaware of the username then there is one more method:
 1. Go to the section “find Facebook friends” on the website.
 2. If the friend that you are looking for also uses Facebook then you would be able to find and connect with them easily.
 
-![find-Facebook-friends-on-TikTok-web ](https://images.wondershare.com/filmora/Mac-articles/find-facebook-friends.png)
+![find-Facebook-friends-on-TikTok-web](https://images.wondershare.com/filmora/Mac-articles/find-facebook-friends.png)
 
 ## 4. Can You use TikTok Live on Mac?
 
@@ -92,7 +92,7 @@ The process of uploading a video on your profile using the website TikTok is fai
 
 ![click-on-the-cloud-shaped-icon](https://images.wondershare.com/filmora/Mac-articles/upload-videos.png)
 
-1. After you click on it, you will be asked to upload a video. We would advise you to be clever and upload an edited video (you can use[Filmora Video Editor for editing](https://tools.techidaily.com/wondershare/filmora/download/)). **Make sure that the resolution of the video is more than 720p and the duration should be between 3-60 seconds.**
+1. After you click on it, you will be asked to upload a video. We would advise you to be clever and upload an edited video (you can use [Filmora Video Editor for editing](https://tools.techidaily.com/wondershare/filmora/download/)). **Make sure that the resolution of the video is more than 720p and the duration should be between 3-60 seconds.**
 2. Next, you will input the caption of your video; make sure that it is eye-catching.
 3. To attract views, find the perfect cover for your video and choose it by dragging it onto the screen.
 4. After that, adjust the privacy settings according to your preference, it will determine who can and cannot view your content.
@@ -177,7 +177,7 @@ If you are unaware of the username then there is one more method:
 1. Go to the section “find Facebook friends” on the website.
 2. If the friend that you are looking for also uses Facebook then you would be able to find and connect with them easily.
 
-![find-Facebook-friends-on-TikTok-web ](https://images.wondershare.com/filmora/Mac-articles/find-facebook-friends.png)
+![find-Facebook-friends-on-TikTok-web](https://images.wondershare.com/filmora/Mac-articles/find-facebook-friends.png)
 
 ## 4. Can You use TikTok Live on Mac?
 
@@ -191,7 +191,7 @@ The process of uploading a video on your profile using the website TikTok is fai
 
 ![click-on-the-cloud-shaped-icon](https://images.wondershare.com/filmora/Mac-articles/upload-videos.png)
 
-1. After you click on it, you will be asked to upload a video. We would advise you to be clever and upload an edited video (you can use[Filmora Video Editor for editing](https://tools.techidaily.com/wondershare/filmora/download/)). **Make sure that the resolution of the video is more than 720p and the duration should be between 3-60 seconds.**
+1. After you click on it, you will be asked to upload a video. We would advise you to be clever and upload an edited video (you can use [Filmora Video Editor for editing](https://tools.techidaily.com/wondershare/filmora/download/)). **Make sure that the resolution of the video is more than 720p and the duration should be between 3-60 seconds.**
 2. Next, you will input the caption of your video; make sure that it is eye-catching.
 3. To attract views, find the perfect cover for your video and choose it by dragging it onto the screen.
 4. After that, adjust the privacy settings according to your preference, it will determine who can and cannot view your content.
@@ -276,7 +276,7 @@ If you are unaware of the username then there is one more method:
 1. Go to the section “find Facebook friends” on the website.
 2. If the friend that you are looking for also uses Facebook then you would be able to find and connect with them easily.
 
-![find-Facebook-friends-on-TikTok-web ](https://images.wondershare.com/filmora/Mac-articles/find-facebook-friends.png)
+![find-Facebook-friends-on-TikTok-web](https://images.wondershare.com/filmora/Mac-articles/find-facebook-friends.png)
 
 ## 4. Can You use TikTok Live on Mac?
 
@@ -290,7 +290,7 @@ The process of uploading a video on your profile using the website TikTok is fai
 
 ![click-on-the-cloud-shaped-icon](https://images.wondershare.com/filmora/Mac-articles/upload-videos.png)
 
-1. After you click on it, you will be asked to upload a video. We would advise you to be clever and upload an edited video (you can use[Filmora Video Editor for editing](https://tools.techidaily.com/wondershare/filmora/download/)). **Make sure that the resolution of the video is more than 720p and the duration should be between 3-60 seconds.**
+1. After you click on it, you will be asked to upload a video. We would advise you to be clever and upload an edited video (you can use [Filmora Video Editor for editing](https://tools.techidaily.com/wondershare/filmora/download/)). **Make sure that the resolution of the video is more than 720p and the duration should be between 3-60 seconds.**
 2. Next, you will input the caption of your video; make sure that it is eye-catching.
 3. To attract views, find the perfect cover for your video and choose it by dragging it onto the screen.
 4. After that, adjust the privacy settings according to your preference, it will determine who can and cannot view your content.
@@ -375,7 +375,7 @@ If you are unaware of the username then there is one more method:
 1. Go to the section “find Facebook friends” on the website.
 2. If the friend that you are looking for also uses Facebook then you would be able to find and connect with them easily.
 
-![find-Facebook-friends-on-TikTok-web ](https://images.wondershare.com/filmora/Mac-articles/find-facebook-friends.png)
+![find-Facebook-friends-on-TikTok-web](https://images.wondershare.com/filmora/Mac-articles/find-facebook-friends.png)
 
 ## 4. Can You use TikTok Live on Mac?
 
@@ -389,7 +389,7 @@ The process of uploading a video on your profile using the website TikTok is fai
 
 ![click-on-the-cloud-shaped-icon](https://images.wondershare.com/filmora/Mac-articles/upload-videos.png)
 
-1. After you click on it, you will be asked to upload a video. We would advise you to be clever and upload an edited video (you can use[Filmora Video Editor for editing](https://tools.techidaily.com/wondershare/filmora/download/)). **Make sure that the resolution of the video is more than 720p and the duration should be between 3-60 seconds.**
+1. After you click on it, you will be asked to upload a video. We would advise you to be clever and upload an edited video (you can use [Filmora Video Editor for editing](https://tools.techidaily.com/wondershare/filmora/download/)). **Make sure that the resolution of the video is more than 720p and the duration should be between 3-60 seconds.**
 2. Next, you will input the caption of your video; make sure that it is eye-catching.
 3. To attract views, find the perfect cover for your video and choose it by dragging it onto the screen.
 4. After that, adjust the privacy settings according to your preference, it will determine who can and cannot view your content.
@@ -547,7 +547,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 Below are some of the benefits enjoyed when the use of Filmora Video Editing software:
 
@@ -665,7 +665,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 Below are some of the benefits enjoyed when the use of Filmora Video Editing software:
 
@@ -783,7 +783,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 Below are some of the benefits enjoyed when the use of Filmora Video Editing software:
 
@@ -901,7 +901,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
+![filmorax boxpng](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 Below are some of the benefits enjoyed when the use of Filmora Video Editing software:
 

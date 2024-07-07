@@ -1,7 +1,7 @@
 ---
 title: "\"[New] TikTok-Spurred Reads  The Top 15 Books Captivating Audiences\""
-date: 2024-05-23T03:18:56.123Z
-updated: 2024-05-24T03:18:56.123Z
+date: 2024-07-06T02:19:11.726Z
+updated: 2024-07-07T02:19:11.726Z
 tags:
   - ai video
   - ai tiktok
@@ -12,12 +12,12 @@ categories:
 description: "\"This Article Describes [New] TikTok-Spurred Reads: The Top 15 Books Captivating Audiences\""
 excerpt: "\"This Article Describes [New] TikTok-Spurred Reads: The Top 15 Books Captivating Audiences\""
 keywords: "\"TikTok Book Trends,Engaging TikTok Reads,Popular TikTok Literature,Viral TikTok Books,Captivating TikTok Novels,Audiences' Top TikTok Reads,Best-Selling TikTok Titles\""
-thumbnail: https://www.lifewire.com/thmb/IX3aINoOmR5VNVYyRo1nRxzDyXs=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/businessman-working-at-computer-in-office-620926129-574488533df78c6bb041d5e9.jpg
+thumbnail: https://thmb.techidaily.com/197c2ed369e4a9919f13d946f77f5157856e3dbfa0838cef669c3e3be16ac8df.jpg
 ---
 
 ## TikTok-Spurred Reads: The Top 15 Books Captivating Audiences
 
-##### Versatile Video Editor - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
+##### Versatile Video Editor - Wondershare Filmora
 
 An easy yet powerful editor
 

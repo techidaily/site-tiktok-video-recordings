@@ -1,7 +1,7 @@
 ---
 title: "[Updated] 20 Country Beats on TikTok to Dance & Unwind"
-date: 2024-05-23T02:33:53.412Z
-updated: 2024-05-24T02:33:53.412Z
+date: 2024-07-06T02:19:02.916Z
+updated: 2024-07-07T02:19:02.916Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "This Article Describes [Updated] 20 Country Beats on TikTok to Dance & Unwind"
 excerpt: "This Article Describes [Updated] 20 Country Beats on TikTok to Dance & Unwind"
 keywords: "TikTok International Beats,Global Music Trends TikTok,Worldwide TikTok Dance,Country Rhythms TikTok,TikTok Cultural Soundtracks,TikTok Diverse BPM Sounds,TikTok International Beats Playlist"
-thumbnail: https://www.lifewire.com/thmb/mjIJFCo03dTiW_sWBiKGYCEP8Ho=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-953660514-5b1410543de42300371597a7.jpg
+thumbnail: https://thmb.techidaily.com/88bfebb08e4cbb8d0a68e78c0297b8f1e363343f342702915251fd121c5a13e0.jpg
 ---
 
 ## 20 Country Beats on TikTok to Dance & Unwind

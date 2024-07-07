@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Relaxed Riffs  20 Country Songs That Make You Want to Dance and Chill on TikTok\""
-date: 2024-05-23T03:07:28.463Z
-updated: 2024-05-24T03:07:28.463Z
+date: 2024-07-06T02:19:14.181Z
+updated: 2024-07-07T02:19:14.181Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes 2024 Approved: Relaxed Riffs: 20 Country Songs That Make You Want to Dance and Chill on TikTok\""
 excerpt: "\"This Article Describes 2024 Approved: Relaxed Riffs: 20 Country Songs That Make You Want to Dance and Chill on TikTok\""
 keywords: "Country TikTok Rhythms,Chill Country Beats,Dancing Country Lyrics,Relaxed Country Dance,Country Song Vibes,TikTok Country Tunes,Groove Country Tracks"
-thumbnail: https://www.lifewire.com/thmb/sPQbXlbZDpnoRk6plGrXde1S2II=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/womanwavingtolaptopwebcam-5b5b9b9bc9e77c004fc62a04.jpg
+thumbnail: https://thmb.techidaily.com/06768f0764e3fd16593ec6ab66fe93ff9404677c09f36129dabffcc95362a115.jpg
 ---
 
 ## Relaxed Riffs: 20 Country Songs That Make You Want to Dance and Chill on TikTok

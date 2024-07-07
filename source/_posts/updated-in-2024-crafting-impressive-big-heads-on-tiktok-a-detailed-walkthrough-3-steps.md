@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Crafting Impressive Big Heads on TikTok  A Detailed Walkthrough (3 Steps)\""
-date: 2024-05-23T03:39:24.278Z
-updated: 2024-05-24T03:39:24.278Z
+date: 2024-07-06T02:19:10.748Z
+updated: 2024-07-07T02:19:10.748Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [Updated] In 2024, Crafting Impressive Big Heads on TikTok: A Detailed Walkthrough (3 Steps)\""
 excerpt: "\"This Article Describes [Updated] In 2024, Crafting Impressive Big Heads on TikTok: A Detailed Walkthrough (3 Steps)\""
 keywords: "TikTok Big Head Creation,Heavy Hairstyle On TikTok,Crafting Large Hair Videos,TikTok Impressive Style Walkthrough,Make Extraordinary Headwear TikTok,Detailed Big Hair on TikTok Guide,TikTok Heavy Hairstyle Strategies"
-thumbnail: https://www.lifewire.com/thmb/WsKoRVFhgnmE3Cy98VrTyp5uzNk=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/terminal-command-prompt-windows-11-5b5ff2747dbe46f985d98b2d60b3ddb2.png
+thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d13956dfbeb425d156edf1af5a5.png
 ---
 
 ## Crafting Impressive Big Heads on TikTok: A Detailed Walkthrough (3 Steps)
@@ -27,7 +27,7 @@ How to get that **TikTok Big Head** effect? Would you like to make your head loo
 
 02 [How to Make a Big Head Effect in CapCut?](#part2)
 
-03 [ How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\] ](#part3)
+03 [How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\]](#part3)
 
 ## Part 1: How to Get the Big Head Filter on TikTok?
 
@@ -147,7 +147,7 @@ Not only TikTok, but different apps such as CapCut on Android and **Wondershare 
 
 02 [How to Make a Big Head Effect in CapCut?](#part2)
 
-03 [ How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\] ](#part3)
+03 [How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\]](#part3)
 
 ## Part 1: How to Get the Big Head Filter on TikTok?
 
@@ -267,7 +267,7 @@ Not only TikTok, but different apps such as CapCut on Android and **Wondershare 
 
 02 [How to Make a Big Head Effect in CapCut?](#part2)
 
-03 [ How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\] ](#part3)
+03 [How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\]](#part3)
 
 ## Part 1: How to Get the Big Head Filter on TikTok?
 
@@ -387,7 +387,7 @@ Not only TikTok, but different apps such as CapCut on Android and **Wondershare 
 
 02 [How to Make a Big Head Effect in CapCut?](#part2)
 
-03 [ How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\] ](#part3)
+03 [How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\]](#part3)
 
 ## Part 1: How to Get the Big Head Filter on TikTok?
 
@@ -552,7 +552,7 @@ After being equipped with all the worldly knowledge about **TikTok reaction vide
 
 Start TikTok, play the video you want to react on, tap the **Share** icon from the lower-right area, and tap the **React** option from the **Share to** menu. Tap **Flip** from the top-right corner of the **Camera** screen to switch between the front and rear camera as needed, optionally tap the **Mic** icon to disable or enable voice and system audio capture, drag and reposition **React** window according to the source footage, and tap the **Record** button from the bottom to start shooting your **TikTok reaction**. Wait while the source clip and your recording process are complete successfully before moving forward to the next step.
 
-![ Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
+![Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
 
 ### 2\. Apply Filters
 
@@ -564,7 +564,7 @@ Tap the **Filters** icon from the top-right corner, tap to pick a filter from th
 
 Tap the **Mixer** icon from the upper-right corner of the screen, drag the **My Voice** and **Soundtrack Volume** sliders to manage your voice recording and the internal audio respectively, and tap **Done** to save the changes once you’re through with the modifications. Back on the previous window, tap **Next** from the bottom-right corner.
 
-![ Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
+![Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
 
 ### 4\. Publish the Video
 
@@ -588,7 +588,7 @@ You can learn how to make **TikTok reaction videos**  using Wondershare Filmora 
 
 Start Wondershare Filmora on your Windows or Mac PC, go to **File**  \> **New Project** and click **9:16 (Portrait)**  from the submenu that appears.
 
-Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  ( **Add to Project** ) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
+Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  (**Add to Project**) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
 
 ![Filmora9 portrait mode split screen presets](https://images.wondershare.com/filmora/article-images/portrait-mode-split-screen-presets.jpg)
 
@@ -657,7 +657,7 @@ After being equipped with all the worldly knowledge about **TikTok reaction vide
 
 Start TikTok, play the video you want to react on, tap the **Share** icon from the lower-right area, and tap the **React** option from the **Share to** menu. Tap **Flip** from the top-right corner of the **Camera** screen to switch between the front and rear camera as needed, optionally tap the **Mic** icon to disable or enable voice and system audio capture, drag and reposition **React** window according to the source footage, and tap the **Record** button from the bottom to start shooting your **TikTok reaction**. Wait while the source clip and your recording process are complete successfully before moving forward to the next step.
 
-![ Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
+![Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
 
 ### 2\. Apply Filters
 
@@ -669,7 +669,7 @@ Tap the **Filters** icon from the top-right corner, tap to pick a filter from th
 
 Tap the **Mixer** icon from the upper-right corner of the screen, drag the **My Voice** and **Soundtrack Volume** sliders to manage your voice recording and the internal audio respectively, and tap **Done** to save the changes once you’re through with the modifications. Back on the previous window, tap **Next** from the bottom-right corner.
 
-![ Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
+![Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
 
 ### 4\. Publish the Video
 
@@ -693,7 +693,7 @@ You can learn how to make **TikTok reaction videos**  using Wondershare Filmora 
 
 Start Wondershare Filmora on your Windows or Mac PC, go to **File**  \> **New Project** and click **9:16 (Portrait)**  from the submenu that appears.
 
-Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  ( **Add to Project** ) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
+Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  (**Add to Project**) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
 
 ![Filmora9 portrait mode split screen presets](https://images.wondershare.com/filmora/article-images/portrait-mode-split-screen-presets.jpg)
 
@@ -762,7 +762,7 @@ After being equipped with all the worldly knowledge about **TikTok reaction vide
 
 Start TikTok, play the video you want to react on, tap the **Share** icon from the lower-right area, and tap the **React** option from the **Share to** menu. Tap **Flip** from the top-right corner of the **Camera** screen to switch between the front and rear camera as needed, optionally tap the **Mic** icon to disable or enable voice and system audio capture, drag and reposition **React** window according to the source footage, and tap the **Record** button from the bottom to start shooting your **TikTok reaction**. Wait while the source clip and your recording process are complete successfully before moving forward to the next step.
 
-![ Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
+![Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
 
 ### 2\. Apply Filters
 
@@ -774,7 +774,7 @@ Tap the **Filters** icon from the top-right corner, tap to pick a filter from th
 
 Tap the **Mixer** icon from the upper-right corner of the screen, drag the **My Voice** and **Soundtrack Volume** sliders to manage your voice recording and the internal audio respectively, and tap **Done** to save the changes once you’re through with the modifications. Back on the previous window, tap **Next** from the bottom-right corner.
 
-![ Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
+![Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
 
 ### 4\. Publish the Video
 
@@ -798,7 +798,7 @@ You can learn how to make **TikTok reaction videos**  using Wondershare Filmora 
 
 Start Wondershare Filmora on your Windows or Mac PC, go to **File**  \> **New Project** and click **9:16 (Portrait)**  from the submenu that appears.
 
-Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  ( **Add to Project** ) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
+Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  (**Add to Project**) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
 
 ![Filmora9 portrait mode split screen presets](https://images.wondershare.com/filmora/article-images/portrait-mode-split-screen-presets.jpg)
 
@@ -867,7 +867,7 @@ After being equipped with all the worldly knowledge about **TikTok reaction vide
 
 Start TikTok, play the video you want to react on, tap the **Share** icon from the lower-right area, and tap the **React** option from the **Share to** menu. Tap **Flip** from the top-right corner of the **Camera** screen to switch between the front and rear camera as needed, optionally tap the **Mic** icon to disable or enable voice and system audio capture, drag and reposition **React** window according to the source footage, and tap the **Record** button from the bottom to start shooting your **TikTok reaction**. Wait while the source clip and your recording process are complete successfully before moving forward to the next step.
 
-![ Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
+![Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
 
 ### 2\. Apply Filters
 
@@ -879,7 +879,7 @@ Tap the **Filters** icon from the top-right corner, tap to pick a filter from th
 
 Tap the **Mixer** icon from the upper-right corner of the screen, drag the **My Voice** and **Soundtrack Volume** sliders to manage your voice recording and the internal audio respectively, and tap **Done** to save the changes once you’re through with the modifications. Back on the previous window, tap **Next** from the bottom-right corner.
 
-![ Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
+![Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
 
 ### 4\. Publish the Video
 
@@ -903,7 +903,7 @@ You can learn how to make **TikTok reaction videos**  using Wondershare Filmora 
 
 Start Wondershare Filmora on your Windows or Mac PC, go to **File**  \> **New Project** and click **9:16 (Portrait)**  from the submenu that appears.
 
-Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  ( **Add to Project** ) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
+Click **Split Screen** from the standard toolbar at the top, hover mouse to the screen type preset you want to use, click the **\+**  (**Add to Project**) icon that appears at the bottom-right corner of the thumbnail, and click **OK**  from the bottom-right corner once the preset is added to the Timeline.
 
 ![Filmora9 portrait mode split screen presets](https://images.wondershare.com/filmora/article-images/portrait-mode-split-screen-presets.jpg)
 

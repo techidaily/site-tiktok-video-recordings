@@ -1,7 +1,7 @@
 ---
 title: "\"Rhythmic Respite  Top 20 Easygoing Country Hits for Stress-Relief Dance on TikTok for 2024\""
-date: 2024-05-23T03:08:17.724Z
-updated: 2024-05-24T03:08:17.724Z
+date: 2024-07-06T02:19:00.910Z
+updated: 2024-07-07T02:19:00.910Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes Rhythmic Respite: Top 20 Easygoing Country Hits for Stress-Relief Dance on TikTok for 2024\""
 excerpt: "\"This Article Describes Rhythmic Respite: Top 20 Easygoing Country Hits for Stress-Relief Dance on TikTok for 2024\""
 keywords: "Easy Country Tunes,Relaxing Dance Hits,Country Stress Relief,Rhythmic Chill Music,TikTok Country Beats,Country Dance Songs,Easygoing Songplay"
-thumbnail: https://www.lifewire.com/thmb/B5Rf1LEJVXTJDXtQFV2DWw9iDoM=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-827891530-5bbe624446e0fb0026c95aad.jpg
+thumbnail: https://thmb.techidaily.com/58f32787f189e5c81c275c54898b5f9f19257cc09edc660acfbd429a0158f5b0.jpg
 ---
 
 ## Rhythmic Respite: Top 20 Easygoing Country Hits for Stress-Relief Dance on TikTok

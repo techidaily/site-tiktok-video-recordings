@@ -1,7 +1,7 @@
 ---
 title: "[New] Unlock the Power of Captions in TikTok Content Creation"
-date: 2024-06-26T14:57:58.905Z
-updated: 2024-06-27T14:57:58.905Z
+date: 2024-07-06T02:19:15.762Z
+updated: 2024-07-07T02:19:15.762Z
 tags:
   - ai video
   - ai tiktok
@@ -295,7 +295,8 @@ This article has shed light on various ways how to add captions on TikTok effici
 
 ## Surgical Switch: Mastering the Process of Changing Your TikTok Username
 
-# How to Change Your TikTok Username ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+# How to Change Your TikTok Username
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
 

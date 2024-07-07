@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Reconstructing Your TikTok Identity  Step-by-Step Renaming Manual\""
-date: 2024-05-23T04:08:58.011Z
-updated: 2024-05-24T04:08:58.011Z
+date: 2024-07-06T02:19:09.868Z
+updated: 2024-07-07T02:19:09.868Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes [New] In 2024, Reconstructing Your TikTok Identity: Step-by-Step Renaming Manual\""
 excerpt: "\"This Article Describes [New] In 2024, Reconstructing Your TikTok Identity: Step-by-Step Renaming Manual\""
 keywords: "TikTok Name Change Guide,Rename TikTok Profile,TikTok Username Update,Rebrand on TikTok,TikTok ID Renaming Steps,TikTok New Display Name,Personalize TikTok Identity"
-thumbnail: https://www.lifewire.com/thmb/4GZTLPOe6q523tAZNmvcN9uct_c=/400x300/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-753288297-5b1837e631283400368d60e0.jpg
+thumbnail: https://thmb.techidaily.com/8ea49d46a7efdbdbce7ce2f715d9bd1879477faba848022dab03800aadbcadb1.jpg
 ---
 
 ## Reconstructing Your TikTok Identity: Step-by-Step Renaming Manual

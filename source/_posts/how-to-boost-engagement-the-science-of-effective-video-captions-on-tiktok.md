@@ -1,7 +1,7 @@
 ---
 title: "\"How to Boost Engagement  The Science of Effective Video Captions on TikTok\""
-date: 2024-05-23T02:26:38.569Z
-updated: 2024-05-24T02:26:38.569Z
+date: 2024-07-06T02:19:23.338Z
+updated: 2024-07-07T02:19:23.338Z
 tags:
   - ai video
   - ai tiktok
@@ -12,7 +12,7 @@ categories:
 description: "\"This Article Describes How to Boost Engagement: The Science of Effective Video Captions on TikTok\""
 excerpt: "\"This Article Describes How to Boost Engagement: The Science of Effective Video Captions on TikTok\""
 keywords: "Video Caption Strategies,Enhancing TikTok Interaction,Increasing TikTok Engagement,Effective Video Captions,Boosting Social Media Videos,Improving Video Views,Optimizing Video Content"
-thumbnail: https://www.lifewire.com/thmb/AqYFFwV9JPzTVpBv91QLuqJMNa8=/300x200/filters:no_upscale():max_bytes(150000):strip_icc()/GettyImages-693804034-5b2a8c218e1b6e003e6e9de6.jpg
+thumbnail: https://thmb.techidaily.com/cb70e57700d07e1f21d91f89b112cf1e7299f5606065c397aa28c9965f8c1a6d.jpg
 ---
 
 ## How to Boost Engagement: The Science of Effective Video Captions on TikTok
