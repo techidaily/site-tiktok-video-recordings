@@ -1,7 +1,7 @@
 ---
 title: "\"Bridging Devices  Friend Up with Discord\""
-date: 2024-06-09T23:39:53.006Z
-updated: 2024-06-10T23:39:53.006Z
+date: 2024-07-22T19:49:09.281Z
+updated: 2024-07-23T19:49:09.281Z
 tags:
   - ai video
   - ai discord
@@ -19,6 +19,9 @@ thumbnail: https://thmb.techidaily.com/0bb0f990e78102071e50c31f7028b725d7f6b1084
 
 # How to Add Friends on Discord
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -35,6 +38,9 @@ Before that – why would you want to add friends on Discord? Well, why not! You
 
 Discord is supposed to make gaming an interactive and lively experience. So, you should start adding friends right away. Here are the steps for adding friends on Discord. The process is the same for the desktop app and browser Discord. You can add friends through two ways -
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### How to Add friends directly on Discord desktop
 
 With this method, you can add friends using their Discord username and tag. Make sure you have their tag.
@@ -62,6 +68,9 @@ Severs are the places where you find your best buddies who obsess over the same 
 1. Open the server that you and your friend are a part of.
 2. Tap on your friend’s profile. You can find their profile in the user list of the server.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ![ add friends on Discord server](https://images.wondershare.com/filmora/article-images/add-friends-on-discord-server.jpg)
 
 1. View their profile. Click open the profile's menu.
@@ -79,6 +88,9 @@ The user interface of discord is more or less the same across various devices. T
 
 You cannot use discord over a phone's browser. To use discord on your phone, you have to download the app. It is available on Google Play Store and App Store. Once you have downloaded the app and logged in, here is **how to add people on Discord**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ### 1\. How to Add friends directly on Discord Mobile
 
 If you have some friends that you do not share common channels with, you can add them directly with their username and Discord tag. Make sure you note down their user name and tag.
@@ -86,6 +98,9 @@ If you have some friends that you do not share common channels with, you can add
 1. Open the discord app.
 2. Tap on the Friends button that is located towards the bottom.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 ![ add friends on Discord mobile](https://images.wondershare.com/filmora/article-images/add-friend-on-discord-mobile.jpg)
 
 1. Then tap on the ‘Add friend’ symbol that appears toward the top under the right side.
@@ -114,6 +129,9 @@ Follow these steps to add a friend that you met on the server.
 
 Likewise, you can build a community of your own by creating a new server. You can invite your friends or people that you met while playing games or obsessing over some fandom.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ## Part 3: How to Find Someone and Add Friends on Discord Without Number
 
 In case you have been using discord for a while, you might have realized that the only way to add friends is by username and the Discord tag number. However, there is a way to add friends without the tag. And here is how to do it –
@@ -123,10 +141,16 @@ In case you have been using discord for a while, you might have realized that th
 3. Tap the Friends symbol that appears on the bottom tab.
 4. Tap on the ‘Add Friends’ button and you will see two tabs: Username and Nearby Scan. Select the Nearby Scan option.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![ add friends to server on Discord mobile without numbers](https://images.wondershare.com/filmora/article-images/add-friends-on-discord-mobile-without-number.jpg)
 
 1. Ask your friend to turn on the Nearby Scan mode on their phone too.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![ add friends to server on Discord mobile with nearby scan feature](https://images.wondershare.com/filmora/article-images/add-friends-nearby-scan-discord.jpg)
 
 1. When your friend gets detected, they appear on the radar.
@@ -147,6 +171,9 @@ On Discord channels, it always ‘the more, the merrier.’ And your server can 
 2. Right-click on the server title. A menu with several options will appear.
 3. From that list, choose ‘invite friends’ and an invite link will appear on the pop-up menu.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![add friends to Discord Server via invitation links](https://images.wondershare.com/filmora/article-images/add-friends-to-discord-server-via-invitation-link.jpg)
 
 1. The invitation link typically expires in a day. But you can change this setting to ‘set this link to never expire.
@@ -179,3 +206,36 @@ Follow @Richard Bennett
       data-ad-slot="8358498916"
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-unlocking-instagrams-hidden-qanda-features/"><u>[New] 2024 Approved  Unlocking Instagram’s Hidden Q&A Features</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-eliminating-common-glitches-in-windows-11s-photos-viewer/"><u>[Updated] Eliminating Common Glitches in Windows 11'S Photos Viewer</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-sierra-maximizing-your-icloud-drive-experience/"><u>2024 Approved  Sierra  Maximizing Your iCloud Drive Experience</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-xiaomi-13t-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Xiaomi 13T Pro | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/from-freelance-filmmaker-to-full-time-financier-snapchat-storytelling/"><u>From Freelance Filmmaker to Full-Time Financier  Snapchat Storytelling</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/from-hashtags-to-high-fives-a-comparison-of-engagement-levels-on-tiktok-and-snap/"><u>From Hashtags to High-Fives  A Comparison of Engagement Levels on TikTok & Snap</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/from-likes-to-shares-a-comparative-guide-of-user-engagement-on-tiktok-and-snapchat/"><u>From Likes to Shares  A Comparative Guide of User Engagement on TikTok and Snapchat</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/from-manga-to-screen-applying-snapchats-anime-filter/"><u>From Manga to Screen  Applying Snapchat's Anime Filter</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/from-raw-to-rad-turning-up-the-heat-with-snapchat-filters/"><u>From Raw to Rad  Turning Up the Heat with Snapchat Filters</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/from-reels-to-filters-a-closer-look-at-tiktok-vs-snaps-features/"><u>From Reels to Filters  A Closer Look at TikTok vs Snap's Features</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/from-snap-to-share-the-ultimate-guide-to-archiving-photos/"><u>From Snap to Share  The Ultimate Guide to Archiving Photos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/fundamentals-of-designing-high-converting-snap-ads/"><u>Fundamentals of Designing High-Converting Snap Ads</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/go-digital-go-social-send-snaps-instantly/"><u>Go Digital, Go Social  Send Snaps Instantly</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/guide-to-flawless-transition-of-phone-cookies-from-device-to-social-media/"><u>Guide to Flawless Transition of Phone' Cookies From Device to Social Media</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/guided-process-importing-snapchats-into-local-gallery/"><u>Guided Process  Importing Snapchats Into Local Gallery</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/harmonic-hits-on-snapchat-videos/"><u>Harmonic Hits on Snapchat Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/harness-the-art-of-visual-storytelling-on-snapchat/"><u>Harness the Art of Visual Storytelling on Snapchat</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/hidden-shotshaper-advanced-stealthy-methods-for-capturing-images/"><u>Hidden ShotShaper  Advanced Stealthy Methods for Capturing Images</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/hidden-shotsnappers-advanced-techniques-for-invisible-image-capturing-on-snapchat/"><u>Hidden ShotSnappers  Advanced Techniques for Invisible Image Capturing on Snapchat</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/hilarious-snapchat-emotive-graphics-viral-edition/"><u>Hilarious Snapchat Emotive Graphics  Viral Edition</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/how-to-add-a-pop-of-japanese-style-with-snapchats-anime-filter/"><u>How to Add a Pop of Japanese Style with Snapchat's Anime Filter</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/how-to-archive-snaps-from-android-plus-mac-systems/"><u>How to Archive Snaps From Android + Mac Systems</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Infinix Hot 40i | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/how-to-change-voice-on-snapchat-with-2-easy-methods/"><u>How to Change Voice on Snapchat with 2 Easy Methods</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-halted-tiktoks-steps-for-reinstating-performance/"><u>In 2024, Halted TikToks? Steps for Reinstating Performance</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/make-a-boomerang-on-snapchat-a-comprehensive-guide/"><u>Make a Boomerang on Snapchat – A Comprehensive Guide</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-the-top-free-mov-video-rotation-apps/"><u>New 2024 Approved The Top Free MOV Video Rotation Apps</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-identify-high-end-filters-and-processors-that-eradicate-unwanted-sounds-from-audio-content/"><u>New Identify High-End Filters and Processors That Eradicate Unwanted Sounds From Audio Content</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-on-iphone-12-pro-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock On iPhone 12 Pro You Should Try Out</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-uplifting-15-track-news-jingles-playlist-for-2024/"><u>Updated Uplifting 15-Track News Jingles Playlist for 2024</u></a></li>
+</ul></div>
