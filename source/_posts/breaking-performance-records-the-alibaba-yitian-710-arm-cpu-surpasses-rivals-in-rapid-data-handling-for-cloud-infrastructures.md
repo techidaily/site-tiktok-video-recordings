@@ -1,7 +1,7 @@
 ---
 title: Breaking Performance Records - The Alibaba Yitian 710 ARM CPU Surpasses Rivals in Rapid Data Handling for Cloud Infrastructures
-date: 2024-08-15T12:28:43.477Z
-updated: 2024-08-16T12:28:43.477Z
+date: 2024-09-04T16:43:56.303Z
+updated: 2024-09-05T16:43:56.303Z
 tags:
   - desktop
 categories:
@@ -96,5 +96,8 @@ Today we have one great deal that turns into two when you take up a bundle offer
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2024326/7443" target="_top" id="2024326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->

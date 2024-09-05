@@ -1,7 +1,7 @@
 ---
 title: Unbox and Test Ride the New CycWagen Electric Cargo Bike - Expert Insights
-date: 2024-08-15T12:29:29.465Z
-updated: 2024-08-16T12:29:29.465Z
+date: 2024-09-04T16:43:55.341Z
+updated: 2024-09-05T16:43:55.341Z
 categories:
   - BestProducts
 description: This Article Describes Unbox and Test Ride the New CycWagen Electric Cargo Bike - Expert Insights
@@ -63,15 +63,9 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
  The Beantech Bitwatch S1 Plus is an interesting proposition. For only $50, it promises to provide heart rate monitoring, music storage, call management, voice control, and remote notifications. For the most part, it delivers. The Bitwatch has its share of design flaws, such as a poorly fitted watch strap and an iOS-only voice app, but it performs enough to be a reasonable consideration for those looking for their first smartwatch.
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/8rMhc1Lk5yFRFW4Zlt2K9cmPdFo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-4-01d7e5ff51aa47008d803513064f4a7a.jpg)
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ## **Design and Software: A surprising amount of features in this chunky watch**
 
  The most outstanding feature of the Bitwatch’s design is its chunkiness. For those with small wrists, this smartwatch looks ridiculous. Furthermore, the included bands are too small in comparison to the watch, giving the overall design a cheap feel. When you wear this watch, you will notice it weighing your wrists down, taunting you to take it off. But as ugly as the Bitwatch is, it is a functional little watch. It has a power button and volume buttons, as well as a strong vibration motor. Its touchscreen works without a problem, and the app layout is intuitive to understand.
@@ -82,15 +76,24 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
 
  While it doesn’t have[NFC](https://www.lifewire.com/what-is-nfc-832715) or GPS, it does have a speaker, and you can send basic messages with the watch. The Bitwatch S1 is surprisingly robust for those who want to dip their toes into the smartwatch experience, with many of the features that mid-tier smartwatches possess.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Setup Process: Easy, but unexplained**
 
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/O7xHfA9sKsBdC0nmqNXbFky-Dm4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-2-3b838f1124184bbd9452b79bb8449c2b.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Emily Ramirez
 
 ## **Performance: You get what you pay for**
@@ -105,6 +108,12 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/7GtX2IU-w4sJA-BTqQtHQThxaJo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-3-ade31135cd9d4fe0b6b01286941d2652.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2030395/7443" target="_top" id="2030395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2030395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2030395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Lifewire / Emily Ramirez
 
 ## **Battery: It last longer than most flagship smartwatches**
@@ -112,7 +121,10 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
  The battery life on the Bitwatch is excellent. With regular usage (GPS, heart rate, Bluetooth all on), we got between two and three days of use before we had to recharge. Charging is a little annoying, though, since it uses a snapping charger base that’s difficult to remove.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://appsumo.8odi.net/c/5597632/2024351/7443" target="_top" id="2024351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2024351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2024351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Price: Reasonable, but worth paying more**
 
@@ -121,7 +133,16 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50.
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Competition: If you want more, it will cost more**
 
@@ -136,7 +157,10 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50\. If you’re looking to try out smartwatches, the Bitwatch will give you a solid battery life, music storage, passive notifications, phone call management, and a very large touchscreen.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Specs
 

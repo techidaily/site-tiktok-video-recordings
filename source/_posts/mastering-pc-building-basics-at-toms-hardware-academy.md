@@ -1,7 +1,7 @@
 ---
 title: Mastering PC Building Basics at Tom's Hardware Academy
-date: 2024-08-15T12:29:33.738Z
-updated: 2024-08-16T12:29:33.738Z
+date: 2024-09-04T16:43:55.276Z
+updated: 2024-09-05T16:43:55.276Z
 tags:
   - desktop
 categories:
@@ -106,5 +106,8 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->

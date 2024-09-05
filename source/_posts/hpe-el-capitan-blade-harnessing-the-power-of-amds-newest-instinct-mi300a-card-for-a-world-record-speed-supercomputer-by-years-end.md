@@ -1,7 +1,7 @@
 ---
 title: "HPE El Capitan Blade: Harnessing the Power of AMD's Newest Instinct MI300A Card for a World Record Speed Supercomputer by Year's End"
-date: 2024-08-15T12:29:14.486Z
-updated: 2024-08-16T12:29:14.486Z
+date: 2024-09-04T16:43:55.621Z
+updated: 2024-09-05T16:43:55.621Z
 tags:
   - desktop
 categories:
@@ -138,5 +138,8 @@ __Ayaneo Retro Mini PC AM01 Specification__
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->

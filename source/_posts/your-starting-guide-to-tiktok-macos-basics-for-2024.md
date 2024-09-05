@@ -1,7 +1,7 @@
 ---
 title: "Your Starting Guide to TikTok (macOS) Basics for 2024"
-date: 2024-08-15T12:28:03.703Z
-updated: 2024-08-16T12:28:03.703Z
+date: 2024-09-04T16:43:57.263Z
+updated: 2024-09-05T16:43:57.263Z
 tags:
   - ai video
   - ai tiktok
@@ -48,9 +48,6 @@ You can use TikTok on your Mac through the official website of TikTok.
 3. Once you have entered your login details, you will be able to enjoy the platform.
 
 ![log-in-to-TikTok-web](https://images.wondershare.com/filmora/Mac-articles/tiktok-web.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 
 We would like to add that when you are using TikTok on your Mac, you can upload already edited videos without any trouble. There is not one specified Tiktok video editing software available but you can utilize Wondershare Filmora for Mac as that seems to be the top choice among users these days.
 
@@ -64,10 +61,13 @@ The technology behind TikTok is pretty much flawless. If the website is not work
 If you are facing some other kind of problem then you can always directly contact the support team at TikTok.
 
 1. Go to your profile by clicking on **Me**.![titok me screen](https://images.wondershare.com/filmora/Mac-articles/TikTok-Me-Screen-.png)
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 2. You will see **Three dots** which will take you to the option of **Report a problem**.
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 3. You will be asked to look for the solution to your problem by looking into the existing suggested topics.
 4. If your issue is not listed there then click on **No** when asked: “if your problem has been resolved”. The company will contact you shortly afterward to solve your matter.
 
@@ -76,9 +76,6 @@ If you are facing some other kind of problem then you can always directly contac
 The process of finding your friend or someone else on the TikTok website is not all that difficult. The creators of the platform have tried their best to make the interface user-friendly. If you know the user ID then:
 
 1. Tap on the Discover (**Magnifying glass** icon) which will take you to a search bar.![search users tiktok web](https://images.wondershare.com/filmora/Mac-articles/search-users-tiktok-web.png)
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 2. Simply type the user ID in there and you see the individual’s account listed.
 3. Simply go to the account and follow/view the profile.
 
@@ -89,12 +86,21 @@ If you are unaware of the username then there is one more method:
 
 ![find-Facebook-friends-on-TikTok-web ](https://images.wondershare.com/filmora/Mac-articles/find-facebook-friends.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4. Can You use TikTok Live on Mac?
 
 Unfortunately, you cannot go live from your Mac on TikTok. As of now, TikTok has not allowed users to record videos or go live from the webcam of their computer. Whilst you cannot use your Mac to go live, you can always do it from your smartphone or tablet.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## 5. How to Upload Videos on TikTok Web from Mac?
 
@@ -104,6 +110,12 @@ The process of uploading a video on your profile using the website TikTok is fai
 
 ![click-on-the-cloud-shaped-icon](https://images.wondershare.com/filmora/Mac-articles/upload-videos.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. After you click on it, you will be asked to upload a video. We would advise you to be clever and upload an edited video (you can use[Filmora Video Editor for editing](https://tools.techidaily.com/wondershare/filmora/download/)). **Make sure that the resolution of the video is more than 720p and the duration should be between 3-60 seconds.**
 2. Next, you will input the caption of your video; make sure that it is eye-catching.
 3. To attract views, find the perfect cover for your video and choose it by dragging it onto the screen.
@@ -113,7 +125,10 @@ The process of uploading a video on your profile using the website TikTok is fai
 ###
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### TikTok Web on Mac
 
@@ -127,10 +142,13 @@ You May Also Like: [How to Clone Yourself on TikTok](https://tools.techidaily.co
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
