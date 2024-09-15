@@ -1,7 +1,7 @@
 ---
 title: "Tom's Tech Review: Expert Guides and Gadget Analyses"
-date: 2024-09-09T04:49:01.411Z
-updated: 2024-09-10T04:49:01.411Z
+date: 2024-09-11T23:25:46.530Z
+updated: 2024-09-14T17:42:22.115Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://thmb.techidaily.com/6063dc83bc10f2ac67f5a169d3251f5108aeff0475931b89679d58ac2ba6f009.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Uncover Top Hardware Reviews and Specs with [Your Site Name] – The Experts' Choice for Quality Equipment
 
 This year's[Computex 2024](https://www.tomshardware.com/tag/computex) trade show was filled interesting AI focused PCs, but often, their most interesting features had little to do with AI. Such is the case with[MSI](https://www.tomshardware.com/tag/msi-microstar) 's MEG Vision X AI Desktop, which we stumbled upon in the company's sprawling booth.
@@ -29,36 +23,18 @@ This year's[Computex 2024](https://www.tomshardware.com/tag/computex) trade show
 
 ![MSI Meg Vision X with Gelsinger Signature](https://cdn.mos.cms.futurecdn.net/BYkvUDqMNVz6ycnx4BZFYV-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  By default, the touch display shows key PC stats such as your CPU temperature and clock speed. It also allows you to launch your favorite apps on your primary screen by tapping a shortcut icon. You can change performance modes here as well, opting for more speed or quieter fans.
 
 ![MSI Meg Vision X](https://cdn.mos.cms.futurecdn.net/2SRaW8dq9GVUxC4BK2xbzh-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  The display is seen by Windows as a full-fledged second display in portrait mode. So you can play YouTube videos on it or run apps on it if you wish. MSI reps said a game streamer should keep their chat or OBS window on the front-panel screen while gaming on their primary monitor. They also said that the touch screen uses Intel integrated graphics while the main monitor or any secondary monitors you attach would use the Nvidia graphics card.
 
  We got to spend a few minutes with the MSI MEG Vision X and its touch screen and we were impressed with how responsive it was. We put a YouTube vertical video onto the touch screen and then swiped down to switch to a different one. The screen supports ten-point touch so you can pinch-to-zoom or even finger paint on it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -73,26 +49,17 @@ This year's[Computex 2024](https://www.tomshardware.com/tag/computex) trade show
 
 ![MSI Meg Vision X](https://cdn.mos.cms.futurecdn.net/naxGXKocxiSqBdGWe9LHqR-320-80.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: Tom's Hardware)
 
  But even if having a local image generator / chatbot is really valuable to you, you don't need a special PC or an on-case screen on the case to get those features. MSI may have its own branded apps, but it's likely using the same chat and image generation that's available elsewhere. Anyone who has a decent graphics card can download and install Stable Diffusion image generator or LLama for chat. If you have an RTX card, try[ComfyUI](https://github.com/comfyanonymous/ComfyUI) , which is a very powerful frontend for Stable Diffusion.
 
  What you can't get elsewhere is a full HD screen that takes up the entire front surface of your chassis. We have seen some cases with screens on the front -- the[Jonsbo D41](https://www.jonsbo.com/en/products/D41MESHSCREENBlack.html) comes to mind. But MSI's display takes up the entire space and is meant to be an integral part of the user experience, not just a cute special effect.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -103,50 +70,34 @@ This year's[Computex 2024](https://www.tomshardware.com/tag/computex) trade show
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-exploring-live-sessions-guesting-basics-of-tiktok/"><u>[New] 2024 Approved  Exploring Live Sessions  Guesting Basics of TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-rise-from-oblivion-mastery-of-tiktok-shadowban-evasion/"><u>[New] 2024 Approved  Rise From Oblivion  Mastery of TikTok Shadowban Evasion</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-standout-on-social-media-top-30-memorable-tiktok-usernames-for-views/"><u>[New] 2024 Approved  Standout on Social Media  Top 30 Memorable TikTok Usernames for Views</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-crafting-captivating-tiktoks-mastering-the-use-of-pre-designed-templates-for-2024/"><u>[New] Crafting Captivating TikToks  Mastering the Use of Pre-Designed Templates for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-finding-the-key-personalized-tag-for-your-tiktok-stream/"><u>[New] Finding the Key  Personalized Tag for Your TikTok Stream</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-how-to-boost-engagement-the-science-of-effective-video-captions-on-tiktok-for-2024/"><u>[New] How to Boost Engagement  The Science of Effective Video Captions on TikTok for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-best-screen-capture-apps-for-android-devices-reviewed/"><u>[New] In 2024, Best Screen Capture Apps for Android Devices Reviewed</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-mastering-instagram-essential-hashtag-tips-for-2024/"><u>[New] Mastering Instagram  Essential Hashtag Tips for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-understanding-pfp-the-key-to-decoding-tiktoks-profile-picture-culture-for-2024/"><u>[New] Understanding PFP  The Key to Decoding TikTok's Profile Picture Culture for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-automate-calendar-events-to-zoom-on-mobile-devices/"><u>[Updated] 2024 Approved  Automate Calendar Events to Zoom on Mobile Devices</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-dual-performance-the-tiktok-duet-trend/"><u>[Updated] 2024 Approved  Dual Performance  The TikTok Duet Trend</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-top-10-unique-tiktok-filters-sparking-engagement/"><u>[Updated] 2024 Approved  Top 10 Unique TikTok Filters Sparking Engagement</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-visual-voyage-from-vimeo-footage-to-animated-artistry/"><u>[Updated] 2024 Approved  Visual Voyage  From Vimeo Footage to Animated Artistry</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-elevate-your-video-storytelling-on-tiktok-with-5-key-caption-techniques-for-2024/"><u>[Updated] Elevate Your Video Storytelling on TikTok With 5 Key Caption Techniques for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-global-menu-magic-top-international-dishes-for-2024/"><u>[Updated] Global Menu Magic  Top International Dishes for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-how-to-use-tiktok-on-mac-and-pc-computers-in-2024/"><u>[Updated] How to Use TikTok on Mac and PC Computers, In 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-easy-and-affordable-video-editing-software-mac-and-tiktok/"><u>[Updated] In 2024, Easy and Affordable Video Editing Software (Mac & TikTok)</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-lost-footage-on-tiktok-repeat-video-history/"><u>[Updated] Lost Footage on TikTok  Repeat Video History</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-the-art-of-xbox-playback-tips-for-clear-video-for-2024/"><u>[Updated] The Art of Xbox Playback  Tips for Clear Video for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-tiktok-refresh-mishap-immediate-solutions-needed-for-2024/"><u>[Updated] TikTok Refresh Mishap  Immediate Solutions Needed for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-essential-asmr-creators-to-follow/"><u>2024 Approved  Essential ASMR Creators to Follow</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-make-waves-in-youtube-essential-mobile-based-production-tips/"><u>2024 Approved  Make Waves in YouTube  Essential Mobile-Based Production Tips</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-navigating-non-working-tiktok-videos-with-ease/"><u>2024 Approved  Navigating Non-Working TikTok Videos with Ease</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-the-quickest-quads-2022-olympics-skate/"><u>2024 Approved  The Quickest Quads  2022 Olympics Skate</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-secret-sauce-to-outstanding-online-identity-creation/"><u>2024 Approved  The Secret Sauce to Outstanding Online Identity Creation</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-unlocking-the-code-a-guide-to-your-own-special-tiktok-hash/"><u>2024 Approved  Unlocking the Code  A Guide to Your Own Special TikTok Hash</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/budget-conscious-pet-owners-rejoice-petcubes-affordable-hd-cam/"><u>Budget-Conscious Pet Owners Rejoice - Petcube’s Affordable HD Cam</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/choreographing-the-finale-for-your-tiktok-story-for-2024/"><u>Choreographing the Finale for Your TikTok Story for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/crafting-perfect-tiktok-vids-on-mac-a-step-by-step-guide-for-2024/"><u>Crafting Perfect TikTok Vids on Mac  A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/fast-track-missing-snap-finders/"><u>Fast-Track Missing Snap Finders</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/high-quality-audio-excellence-with-these-mics-for-2024/"><u>High-Quality Audio Excellence with These Mics for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/hp-laptop-speakers-silent-troubleshoot-non-functioning-sounds-in-windows-10/"><u>HP Laptop Speakers Silent? Troubleshoot Non-Functioning Sounds in Windows 10</u></a></li>
-<li><a href="https://howto.techidaily.com/huawei-nova-y91-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Huawei Nova Y91 Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-vivo-x-flip-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Vivo X Flip | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-comprehensive-evaluation-samsung-gear-360-vr-camera/"><u>In 2024, Comprehensive Evaluation  Samsung Gear 360 VR Camera</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-from-spectator-to-participant-joining-live-tiktok-events/"><u>In 2024, From Spectator to Participant  Joining Live TikTok Events</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-your-easy-route-to-tiktok-bliss-on-a-macbook/"><u>In 2024, Your Easy Route to TikTok Bliss on a MacBook</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/mastering-text-in-visuals-the-top-5-tips-for-tiktok-captions/"><u>Mastering Text in Visuals  The Top 5 Tips for TikTok Captions</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-oppo-find-n3-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from Oppo Find N3</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/pro-tips-for-power-packed-tiktok-content-via-desktop-for-2024/"><u>Pro Tips for Power-Packed TikTok Content via Desktop for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/quick-fix-for-loud-popping-in-your-earbuds-expert-advice/"><u>Quick Fix for Loud Popping in Your Earbuds: Expert Advice!</u></a></li>
-<li><a href="https://techtrends.techidaily.com/simplified-methods-to-erase-your-login-pin-from-windows-10-system/"><u>Simplified Methods to Erase Your Login PIN From Windows 10 System</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/snapchats-own-creativity-lab-inspire-over-a-hundred-private-stories-with-original-titles/"><u>Snapchat's Own Creativity Lab  Inspire over a Hundred Private Stories with Original Titles</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/the-premier-selection-of-vr-cycling-options/"><u>The Premier Selection of VR Cycling Options</u></a></li>
-<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-sony-xperia-1-v-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Sony Xperia 1 V FRP Bypass</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unlocking-instagrams-soundscape-feature-for-2024/"><u>Unlocking Instagram’s Soundscape Feature for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-safe-mp3-extraction-three-methods-for-youtube-audio-conversion/"><u>[New] 2024 Approved Safe MP3 Extraction Three Methods for YouTube Audio Conversion</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-spotlight-top-10-tiktok-gaming-pros/"><u>[New] 2024 Approved Spotlight Top 10 TikTok Gaming Pros</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-excellence-in-tiktok-making-leveraging-templates-to-stand-out-for-2024/"><u>[New] Excellence in TikTok Making Leveraging Templates to Stand Out for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-identifying-best-free-online-and-web-services-tiktok-to-mp3-converter-list-6/"><u>[New] In 2024, Identifying Best Free Online and Web Services TikTok to MP3 Converter List (6)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-top-25-anime-visionaries-on-tiktok-changing-content-norms/"><u>[New] In 2024, Top 25 Anime Visionaries on TikTok Changing Content Norms</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-unleash-the-fun-of-jumping-into-tiktok-lives/"><u>[New] In 2024, Unleash the Fun of Jumping Into TikTok Lives</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-whats-cooking-10-viral-food-scenes-on-tiktok/"><u>[New] In 2024, What's Cooking? 10 Viral Food Scenes on TikTok</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-monetizing-your-youtube-content-costing/"><u>[Updated] 2024 Approved Monetizing Your YouTube Content Costing</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-captivate-convince-and-connect-explore-the-top-20-tiktok-caption-tricks/"><u>[Updated] Captivate, Convince, and Connect Explore the Top 20 TikTok Caption Tricks</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-elevate-your-social-media-presence-insta-videography/"><u>[Updated] Elevate Your Social Media Presence Insta-Videography</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-analysis-of-the-netgear-nighthawk-rax120-a-top-performer-in-speed-and-connectivity/"><u>Comprehensive Analysis of the Netgear Nighthawk RAX120 - A Top-Performer in Speed and Connectivity</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-15-pro-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone 15 Pro Without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-tailored-sound-rate-on-youtube-desktopmobile/"><u>In 2024, Tailored Sound Rate on YouTube (Desktop/Mobile)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-tecno-spark-10-5g-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Tecno Spark 10 5G Phones</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/ultimate-guide-from-iphone-6s-plus-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide from iPhone 6s Plus iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>Ways to trade pokemon go from far away On Realme C67 4G? | Dr.fone</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

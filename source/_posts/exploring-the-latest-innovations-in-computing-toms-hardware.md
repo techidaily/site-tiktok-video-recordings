@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Latest Innovations in Computing: Tom's Hardware"
-date: 2024-09-09T04:48:56.015Z
-updated: 2024-09-10T04:48:56.015Z
+date: 2024-09-09T16:04:27.455Z
+updated: 2024-09-15T01:52:30.480Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://thmb.techidaily.com/12dc2166b099f1b9b6e7bdda75dc13c8e66e7fa737e2f8ad58e5a356ea3ce1b4.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Next-Gen Computing: Discover the Powerful Combination of Meteor Lake CPU and Intel Core I9 in OneXPlayer's New Mini-PC - Enhanced with up to 32GB RAM & OCuLink Technology
 
 One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU enclosure, just introduced its first mini-PC on Indiegogo—the OneXPlayer M1\. This tiny device (via[Liliputing](https://liliputing.com/onexplayer-m1-is-a-mini-pc-with-intel-core-ultra-9-185h-oculink-and-usb4/) ) has the Intel Core Ultra 9 185H and up to 32 GB of RAM. It also has an RJ45 port, Wi-Fi 6E, and Bluetooth 5.2, meaning you have three different connectivity options.
@@ -35,42 +29,18 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 ![OneXPlayer M1 product images](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: One-Netbook)
 
 ![OneXPlayer M1 product images](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: One-Netbook)
 
 ![OneXPlayer M1 product images](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: One-Netbook)
 
 ![OneXPlayer M1 product images](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  (Image credit: One-Netbook)
 
  Aside from the Power button, One-Netbook also gave its mini-PC an RGB button to adjust the RGB lights on the case. But what’s interesting is that the Turbo button from PCs in the 1980s and 1990s is returning on the OneXPlayer M1\. The Turbo button will push the 185H’s power draw from the base 45 to 60 watts — just five watts short of its maximum configurable TDP. A 100-watt USB-C power supply also powers the mini-PC, so you’ll have ample power, even pushing the processor to its limit.
@@ -79,12 +49,6 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -93,14 +57,11 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -111,55 +72,22 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-decoding-vimeos-variety-of-subscription-plans-and-their-advantages/"><u>[New] 2024 Approved  Decoding Vimeo's Variety of Subscription Plans and Their Advantages</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-maximizing-your-influence-a-selection-of-expert-instagram-analytics-software/"><u>[New] 2024 Approved  Maximizing Your Influence  A Selection of Expert Instagram Analytics Software</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-pinpointing-the-perfect-stream-tagline-for-you-on-tiktok/"><u>[New] 2024 Approved  Pinpointing the Perfect Stream Tagline for You on TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-plunge-into-a-live-stream-on-tiktok-with-ease/"><u>[New] 2024 Approved  Plunge Into a Live Stream on TikTok with Ease</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-prevent-plagiarism-copyright-check-for-uploading-videos-2e/"><u>[New] 2024 Approved  Prevent Plagiarism  Copyright Check for Uploading Videos (2E)</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-trustworthy-tiktok-audience-growers/"><u>[New] 2024 Approved  Trustworthy TikTok Audience Growers</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-7-top-picks-free-on-web-tiktok-audio-tools-for-mp3s-extraction/"><u>[New] 7 Top Picks  Free, On-Web TikTok Audio Tools for MP3s Extraction</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-clearing-up-tiktok-problems-on-android-and-iphone-quickly/"><u>[New] Clearing up TikTok Problems on Android & iPhone Quickly</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-how-to-find-your-own-tiktok-stream-key/"><u>[New] How to Find Your Own TikTok Stream Key</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-enlarging-your-footage-techniques-for-massive-headscapes-on-tiktok/"><u>[New] In 2024, Enlarging Your Footage  Techniques for Massive Headscapes on TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-forgotten-tiktok-reload-a-quick-fix/"><u>[New] In 2024, Forgotten TikTok Reload  A Quick Fix?</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-from-novice-to-pro-the-desktop-tiktok-creation-process/"><u>[New] In 2024, From Novice to Pro  The Desktop TikTok Creation Process</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-master-the-art-of-speedy-tiktok-content/"><u>[New] In 2024, Master the Art of Speedy TikTok Content</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-master-your-online-identity-with-a-revamped-tiktok-profile/"><u>[New] In 2024, Master Your Online Identity with a Revamped TikTok Profile</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-mouthwatering-marvels-leading-tiktok-eaters/"><u>[New] In 2024, Mouthwatering Marvels  Leading TikTok Eaters</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-step-by-step-screen-shotting-for-xbox-enthusiasts/"><u>[New] In 2024, Step-by-Step Screen Shotting for Xbox Enthusiasts</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-live-stream-entry-tiktok-edition/"><u>[New] Mastering Live-Stream Entry  TikTok Edition</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-tickling-your-sense-of-humor-tiktoks-20-joke-highlights-for-2024/"><u>[New] Tickling Your Sense of Humor  TikTok's 20 Joke Highlights for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-tiktok-broadcast-chrome-android-iphone-techniques/"><u>[New] TikTok Broadcast  Chrome, Android, iPhone Techniques</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-unraveling-the-mystery-what-does-pfp-mean-in-tiktok/"><u>[New] Unraveling the Mystery  What Does PFP Mean in TikTok?</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-dive-deep-into-tiktoks-voiceover-realm/"><u>[Updated] 2024 Approved  Dive Deep Into TikTok's Voiceover Realm</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-elevate-your-tiktok-score-with-these-10-key-tools/"><u>[Updated] 2024 Approved  Elevate Your TikTok Score with These 10 Key Tools</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-no-marking-tiktok-mp4-downloader-for-high-quality-clips/"><u>[Updated] 2024 Approved  No Marking TikTok MP4 Downloader for High-Quality Clips</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-the-ultimate-guide-to-capturing-memorable-moments-on-tiktok-with-filmmaker-tools/"><u>[Updated] 2024 Approved  The Ultimate Guide to Capturing Memorable Moments on TikTok with Filmmaker Tools</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-epic-battles-and-dynamic-choreography-for-tiktoks/"><u>[Updated] Epic Battles & Dynamic Choreography for TikToks</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-exploring-the-essence-of-vimeo-a-leader-in-video-platforms-for-2024/"><u>[Updated] Exploring the Essence of Vimeo  A Leader in Video Platforms for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-how-to-dive-into-a-friends-life-without-fuss-on-tiktok/"><u>[Updated] How To Dive Into a Friend's Life Without Fuss on TikTok</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-commercial-free-android-vision-capturer/"><u>[Updated] In 2024, Commercial-Free Android Vision Capturer</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-engineering-a-standout-tiktok-endcap/"><u>[Updated] In 2024, Engineering A Standout TikTok Endcap</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-iconic-pfp-ideas-make-a-mark-in-the-world-of-tiktok/"><u>[Updated] In 2024, Iconic PFP Ideas  Make a Mark in the World of TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-learn-how-to-craft-engaging-tiktok-captions-quickly-for-2024/"><u>[Updated] Learn How to Craft Engaging TikTok Captions Quickly for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-strategies-for-discerning-professional-film-making-talents/"><u>[Updated] Strategies for Discerning Professional Film Making Talents</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-boost-interaction-on-your-tiktok-with-these-5-innovative-caption-methods/"><u>2024 Approved  Boost Interaction on Your TikTok with These 5 Innovative Caption Methods</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-legal-footprints-in-tiktok-pre-upload-compliance-steps/"><u>2024 Approved  Legal Footprints in TikTok  Pre-Upload Compliance Steps</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-mellow-music-playlist-20-tiktok-country-tracks-to-relax-with/"><u>2024 Approved  Mellow Music Playlist  20 TikTok Country Tracks to Relax With</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-spinning-jujutsu-kaisen-stories-on-tiktok/"><u>2024 Approved  Spinning Jujutsu Kaisen Stories on TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/beat-fiends-exploring-the-most-popular-rap-songs-on-tiktok/"><u>Beat Fiends  Exploring the Most Popular Rap Songs on TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/from-page-to-screen-crafting-jujutsu-kaisen-stories-on-tiktok-for-2024/"><u>From Page to Screen  Crafting Jujutsu Kaisen Stories on TikTok for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-latest-intel-network-adapter-software-from-official-site/"><u>Get the Latest Intel Network Adapter Software From Official Site</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/has-anyone-overtaken-vonage-as-the-top-voip-service-provider-yet/"><u>Has Anyone Overtaken Vonage as the Top VoIP Service Provider Yet?</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/hues-harmony-crafting-colorful-artistry/"><u>Hues Harmony  Crafting Colorful Artistry</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-boost-engagement-with-these-5-caption-tricks-on-tiktok-videos/"><u>In 2024, Boost Engagement with These 5 Caption Tricks on TikTok Videos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-comedic-continuum-top-tiktok-stars-and-their-funnies/"><u>In 2024, Comedic Continuum  Top TikTok Stars and Their Funnies</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-realme-narzo-n55-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Realme Narzo N55 Phones with/without a PC</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-the-ultimate-macos-manual-for-ootd-videographers/"><u>In 2024, The Ultimate MacOS Manual for OOTD Videographers</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/in-2024-unleash-fast-the-ultimate-tiktok-download-playbook/"><u>In 2024, Unleash Fast  The Ultimate TikTok Download Playbook</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-the-samsung-un65nu8000fxza-evaluating-smart-features-and-cost-effectiveness/"><u>In-Depth Analysis of the Samsung UN65NU8000FXZA: Evaluating Smart Features and Cost Effectiveness</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-the-ultimate-guide-to-animated-video-making-on-android-and-ios-for-2024/"><u>New The Ultimate Guide to Animated Video Making on Android and iOS for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/the-elite-group-tiktoks-most-popular-streamers-for-2024/"><u>The Elite Group  TikTok's Most Popular Streamers for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/the-ultimate-guide-to-using-siri-in-tiktok-videos-enhance-your-filming-experience-for-2024/"><u>The Ultimate Guide to Using Siri in TikTok Videos - Enhance Your Filming Experience for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/tiktok-tricks-faster-video-loading-for-2024/"><u>TikTok Tricks  Faster Video Loading for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-from-still-shots-to-soundscapes-an-instagram-mp3-journey-for-2024/"><u>[New] From Still Shots to Soundscapes An Instagram-MP3 Journey for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-step-by-step-guide-to-creating-an-eye-catching-collage/"><u>[New] Step-by-Step Guide to Creating an Eye-Catching Collage</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-coolest-tiktok-viral-rap-songs-of-the-year/"><u>[Updated] Coolest TikTok Viral Rap Songs of the Year</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-instant-melody-broadcasting-on-dali-video/"><u>[Updated] Instant Melody Broadcasting on Dali Video</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-resume-your-tiktok-journey-post-reload-error-for-2024/"><u>[Updated] Resume Your TikTok Journey Post-Reload Error for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-25-animated-visionaries-shaping-tiktok-trends/"><u>2024 Approved 25 Animated Visionaries Shaping TikTok Trends</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-mastering-fades-in-adobe-audition-basics/"><u>2024 Approved Mastering Fades in Adobe Audition Basics</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-from-fan-to-earner-understanding-view-requirements/"><u>In 2024, From Fan to Earner Understanding View Requirements</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Gionee F3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/upgrading-simplified-navigating-macos-11-big-surs-changes-for-2024/"><u>Upgrading Simplified Navigating macOS 11 Big Sur's Changes for 2024</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
