@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Hacking the Scale  Large Props in TikTok Filmmaking for 2024\""
-date: 2024-09-09T05:28:19.160Z
-updated: 2024-09-15T05:03:46.386Z
+date: 2024-09-14T08:38:00.581Z
+updated: 2024-09-19T20:52:50.693Z
 tags:
   - ai video
   - ai tiktok
@@ -183,6 +183,13 @@ With the CapCut software, you can quickly enlarge your head in videos. With a si
 
 ![capcut big head effect adjust speed range intensity](https://images.wondershare.com/filmora/article-images/capcut-big-head-effect-adjust-speed-range-intensity.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can check the video tutorial below to find out more details in creating big head and small body effect on video with CapCut.
 
 ## Part 3: How to Add Big Head Effect in Filmora Video Editor? \[3 Ways\]
@@ -209,6 +216,13 @@ For macOS 10.12 or later
 
 ![add bubble head ar sticker filmora](https://images.wondershare.com/filmora/article-images/add-bubble-head-ar-sticker-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Besides the bubble head effect, there are many more AR stickers available, such as heart eyes, censor bar, emojis, and big eyes. Download the Filmora video editor now and check it yourself.
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -225,39 +239,32 @@ In the Effects tab, go to the **Recommended** category, and then you will see th
 
 ![add magnify effect tiktok video](https://images.wondershare.com/filmora/article-images/add-magnify-effect-tiktok-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Now, double click on the effect in the timeline and open the Properties of the magnify effect. From the Properties section, you can adjust the size of the bubble using functions such as the Radius, CenterY, CenterX, Alpha, Zoom rate, etc to get a better video with big head effects.
 
 ![adjust magnify effect settings](https://images.wondershare.com/filmora/article-images/adjust-magnify-effect-settings.jpg)
 
 **Note:** If you're unable to locate the Magnify option in the Effects tab, please download and install the latest version of Filmora, and then type "Magnify" in the search bar, and the system will directly take you to where the option is present.
 
-### Method 3: Use Mask and Scale to Make a Video with Big Head Effect
-
-Besides adding magnify effects and bubblehead effects, you can also use the mask preset to create a big head effect in Filmora.
-
-Drag and drop the video to video track 1 and video track 2 respectively in Filmora. Then go to the **Effect** tab, and scroll down to the **Utility** category, and place the Image Mask effect to the video above. Or, you can type _image mask_ in the search bar to locate it quickly.
-
-![add image mask to tiktok video](https://images.wondershare.com/filmora/article-images/add-image-mask-to-tiktok-video.jpg)
-
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+### Method 3: Use Mask and Scale to Make a Video with Big Head Effect
+
+Besides adding magnify effects and bubblehead effects, you can also use the mask preset to create a big head effect in Filmora.
+
+Drag and drop the video to video track 1 and video track 2 respectively in Filmora. Then go to the **Effect** tab, and scroll down to the **Utility** category, and place the Image Mask effect to the video above. Or, you can type _image mask_ in the search bar to locate it quickly.
+
+![add image mask to tiktok video](https://images.wondershare.com/filmora/article-images/add-image-mask-to-tiktok-video.jpg)
 
 Now, double-click the video with the image mask to adjust the properties. Scroll down to the Video Effects field, and you will see the Image Mask. Click the arrow icon to choose a mask preset, adjust its position and size settings to fit the video.
 
@@ -343,6 +350,13 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Create Big Head with AR Stick Bubble Head Effect in Filmora Video Editor
 
  To add the Big Head effect on Filmora, click on the Effects option and select the **AR Stickers** option. Type bubble head in the search bar and then you will see it in the screen. Then, drag and drop the **AR Stickers Bubble** **Head** effect onto the timeline**,** specifically to the portion of the video where you want to add the Big Head filter on the person. As you do that, you will see a Bubble present on the video.
@@ -358,13 +372,6 @@ For Win 7 or later (64-bit)
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.12 or later
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2: Add Magnify Effect to Video
 
@@ -486,25 +493,11 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 2: Add Magnify Effect to Video
 
 In the Effects tab, go to the **Recommended** category, and then you will see the magnify effect. Drag and drop it to the timeline above the video track, and you will see part of the video has been magnified accordingly.
 
 ![add magnify effect tiktok video](https://images.wondershare.com/filmora/article-images/add-magnify-effect-tiktok-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Now, double click on the effect in the timeline and open the Properties of the magnify effect. From the Properties section, you can adjust the size of the bubble using functions such as the Radius, CenterY, CenterX, Alpha, Zoom rate, etc to get a better video with big head effects.
 
@@ -527,6 +520,13 @@ Tips: You can hide the video in track 1 by clicking the eye icon so you can adju
 Next, click the video in track 2 again, and then go to the **Transform** tab, use the **Scale** slider to adjust the video size to make a big head effect.
 
 ![adjust scale to make big head](https://images.wondershare.com/filmora/article-images/adjust-scale-to-make-big-head.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Watch the video tutorial below to find out how to use the Image Mask effect to create a video with a big head effect in Filmora.
 
@@ -568,20 +568,19 @@ TikTok is a social media platform that is easily accessible from mobile phones. 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-pioneering-desktop-livestreams-with-tiktoks-features/"><u>[New] Pioneering Desktop Livestreams with TikTok's Features</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-expressive-storytelling-with-snapchats-in-your-face-gifs/"><u>[Updated] 2024 Approved Expressive Storytelling with Snapchat's In-Your-Face GIFs</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-harnessing-the-power-of-speech-on-tiktok-platform-for-2024/"><u>[Updated] Harnessing the Power of Speech on TikTok Platform for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-seamless-fb-to-mp4-conversion-high-definition-options-now/"><u>[Updated] In 2024, Seamless FB to MP4 Conversion, High Definition Options Now</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/4-ways-to-go-live-on-tiktok-on-computer/"><u>4 Ways to Go Live on TikTok on Computer</u></a></li>
-<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-infinix-smart-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Infinix Smart 8 | Dr.fone</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/capturing-your-macs-display-live-easy-steps-included/"><u>Capturing Your Mac's Display Live - Easy Steps Included</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/enhance-your-tiktok-videos-with-these-5-top-text-tools-in-23/"><u>Enhance Your TikTok Videos with These 5 Top Text Tools in '23</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/explore-the-power-of-visuals-mastery-over-tiktok-video-backgrounds-for-2024/"><u>Explore the Power of Visuals Mastery over TikTok Video Backgrounds for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/immersive-zooming-experience-with-microsoft-teams/"><u>Immersive Zooming Experience with Microsoft Teams</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-avoiding-frustrations-with-tiktok-glitches/"><u>In 2024, Avoiding Frustrations with TikTok Glitches</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/mastering-iphone-photos-discover-prime-angles-for-perfect-shots-for-2024/"><u>Mastering iPhone Photos Discover Prime Angles for Perfect Shots for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/seamless-setup-download-your-intel-dual-band-ac-7260-drivers-today/"><u>Seamless Setup: Download Your Intel Dual Band AC 7260 Drivers Today</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/stand-out-on-social-media-discover-a-hundredplus-creative-frameworks-for-your-snap-stories/"><u>Stand Out on Social Media Discover a Hundred+ Creative Frameworks for Your Snap Stories</u></a></li>
-<li><a href="https://driver-download.techidaily.com/troubleshooting-techniques-for-logitech-f710-mouse-drivers-across-windows-operating-systems-11-10-8-and-7/"><u>Troubleshooting Techniques for Logitech F710 Mouse Drivers Across Windows Operating Systems (11, 10, 8 & 7)</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-complete-blueprint-for-tracking-yt-viewsrevenue/"><u>[New] 2024 Approved Complete Blueprint for Tracking YT Views/Revenue</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-premium-free-ticking-counters/"><u>[New] In 2024, Premium Free Ticking Counters</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-top-5-must-know-aspects-of-using-tiktok-macos/"><u>[Updated] In 2024, Top 5 Must-Know Aspects of Using TikTok (macOS)</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-streamline-the-spectacle-exploring-hd-video-on-twitter/"><u>[Updated] Streamline the Spectacle Exploring HD Video on Twitter</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-tiktok-shadowban-how-to-get-unshadowbanned-on-tiktok2/"><u>[Updated] TikTok Shadowban How to Get Unshadowbanned on Tiktok2</u></a></li>
+<li><a href="https://blog-min.techidaily.com/44cm5pya6ygp55s76loq5lplusd5oyb44gn57ch5y2y44gr5yuv55s75asj5oplusb77yb772c6auy55s76loq44gu44gplus44gplus56e76kgm44gz44kl44gf44kb44gu44oz44k544oi44k944ov44oi98/"><u>「最適画質保持で簡単に動画変換！｜高画質のまま移行するためのベストソフトウェアガイド」</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-how-to-stream-google-meet-to-youtube-step-by-step-guide/"><u>2024 Approved How To Stream Google Meet to YouTube [Step-by-Step Guide]</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-premier-digital-hubs-seamless-ringtones-acquisition/"><u>2024 Approved Premier Digital Hubs Seamless Ringtones Acquisition</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-top-net-finds-high-quality-alarm-tones/"><u>2024 Approved Top Net Finds High-Quality Alarm Tones</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/analyzing-the-arlo-video-alarm-doorbell-the-convenient-fusion-of-surveillance-and-protection/"><u>Analyzing the Arlo Video Alarm Doorbell: The Convenient Fusion of Surveillance and Protection</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/experience-next-level-customization-with-openais-innovative-gpt-solution-begin-here/"><u>Experience Next-Level Customization with OpenAI’s Innovative GPT Solution - Begin Here</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-persistent-usb-connection-loss-step-by-step-guide/"><u>Fixing Persistent USB Connection Loss - Step-by-Step Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/weekly-hits-cant-skip-these-tiktok-tests/"><u>Weekly Hits Can't Skip These TikTok Tests</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/your-starting-guide-to-tiktok-macos-basics-for-2024/"><u>Your Starting Guide to TikTok (macOS) Basics for 2024</u></a></li>
 </ul></div>
 
