@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Formulating Imaginative TikTok Credit Graphics"
-date: 2024-09-18T16:01:06.080Z
-updated: 2024-09-20T16:01:10.641Z
+date: 2024-09-25T16:41:48.509Z
+updated: 2024-09-26T16:33:18.870Z
 tags:
   - ai video
   - ai tiktok
@@ -56,13 +56,6 @@ To **create a good outro for your TikTok**, follow the below tips:
 * Make your outros visually appealing and make use of colors and/or patterns that are pleasing to the eye.
 * Add positive words and phrases to your outros to have a good impact on your viewers.
 * Use branding elements like your logo or channel name.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. An Excellent Video Editor for Your TikTok Adventure
 
@@ -128,6 +121,19 @@ Step1 First, launch a browser on your PC, visit the official [Wondershare Filmor
 
 ![download and install wondershare filmora software](https://images.wondershare.com/filmora/article-images/2022/11/download-and-install-wondershare-filmora-software.png)
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Install the software on your PC, launch it, click the **New Project** option on the main dashboard, and use the **"Click here to import Media"** option or drag and drop your file to import it.
 
 ![importing file to filmora](https://images.wondershare.com/filmora/article-images/2022/11/importing-file-to-filmora.png)
@@ -135,6 +141,13 @@ Step2 Install the software on your PC, launch it, click the **New Project** opti
 Step3 Drag your video and drop it in the **Timeline** to start the editing process. Now, add photos, effects, titles, and music to your TikTok outro clip in the end. You can also apply transitions between your video clips.
 
 Step4 Review your video and make the necessary outro adjustments in the Timeline. Finally, click the **"Export"** option and save the video on your mobile device and upload it on TikTok afterward.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. A Bonus Recommendation: TikTok Outro Online Makers
 
@@ -212,16 +225,16 @@ Step1 Once you have captured a video on TikTok, tap the "Tick" icon from the bot
 
 ![tap on the tick icon](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-on-tiktok-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 On the editing mode, locate the "Captions" option from the right side. After tapping on it, TikTok will instantly generate the subtitles automatically. Make sure that all the captions are correctly created. Once you are done, hit the "Save" button displayed at the top right side. Afterward, you can quickly post your TikTok video with captions.
 
 ![select the captions option](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-on-tiktok-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Way 2: Use Auto Captions in CapCut
 
@@ -263,6 +276,13 @@ Step1 Begin by reaching the official website of Veed.io. Go to its Tools and loc
 
 ![choose auto subtitle generator](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-on-tiktok-8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043662/7443" target="_top" id="2043662">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043662/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Click "Get Started" and upload a video from your system. Once you are done, tap on "Subtitles" and select "Auto Subtitle" from the given options. Choose your preferred language and tap on "Create Subtitles."
 
 ![hit the create subtitles button](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-on-tiktok-9.jpg)
@@ -299,14 +319,14 @@ After completing all the settings, you can click on the "Export" button. Before 
 
 ![export or share the video](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-on-tiktok-13.jpg)
 
-## Part 4: People Also Want to Know
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Part 4: People Also Want to Know
 
 ### 1\. How to add captions to TikTok?
 
@@ -344,6 +364,13 @@ If some foreigners can't understand or speak your native language, TikTok captio
 
 There are various ways through which you can generate TikTok captions effortlessly. Read this section to discover multiple and convenient ways to create TikTok captions easily.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Way 1: Auto-Generate Captions with TikTok's Built-in Feature
 
 If you don't want to download video editing software, you can utilize the built-in feature of TikTok to create auto-captions. This will save you from the hassle of launching or accessing a professional subtitle editor. Moreover, it will also save you time and effort from creating subtitles manually. To use the built-in feature of **TikTok automatic captions**, check the following instructions:
@@ -351,13 +378,6 @@ If you don't want to download video editing software, you can utilize the built-
 Step1 Once you have captured a video on TikTok, tap the "Tick" icon from the bottom right side. This will redirect you to the editing mode.
 
 ![tap on the tick icon](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-on-tiktok-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 On the editing mode, locate the "Captions" option from the right side. After tapping on it, TikTok will instantly generate the subtitles automatically. Make sure that all the captions are correctly created. Once you are done, hit the "Save" button displayed at the top right side. Afterward, you can quickly post your TikTok video with captions.
 
@@ -380,6 +400,13 @@ Step2 Afterward, select "Text" options from which you can either choose "Auto Ly
 Step3 Once you are done adjusting the settings, hit the "Start" button. After some seconds, CapCut will create captions for your TikTok video efficiently. Afterward, you can choose video resolution and hit the "Arrow" icon to export the video.
 
 ![hit the start button](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-on-tiktok-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Way 3: Add Captions to TikTok Videos Manually
 
@@ -439,6 +466,19 @@ After completing all the settings, you can click on the "Export" button. Before 
 
 ![export or share the video](https://images.wondershare.com/filmora/article-images/2022/12/add-captions-on-tiktok-13.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: People Also Want to Know
 
 ### 1\. How to add captions to TikTok?
@@ -448,13 +488,6 @@ To add TikTok captions, you can choose the manual or automatic way. TikTok has a
 ### 2\. How to add captions to TikTok after posting?
 
 If you want to add TikTok captions after posting, you have to download the video on your phone first. Afterward, hit the Plus icon to re-upload the video from your gallery. Choose that particular video again and tap on the Post button. Now you can write the captions on the given space easily. Afterward, tap on the "Post" button.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Last Words
 
@@ -473,5 +506,24 @@ This article has shed light on various ways how to add captions on TikTok effici
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-essential-20-open-source-montage-of-pubg-scenes-for-2024/"><u>[New] Essential 20 Open Source Montage of PUBG Scenes for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-dominating-the-digital-space-5-tips-for-video-visibility-victory/"><u>[New] In 2024, Dominating the Digital Space 5 Tips for Video Visibility Victory</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-navigating-youtube-shorts-investments/"><u>[New] In 2024, Navigating YouTube Shorts Investments</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-tiktok-shadowban-how-to-get-unshadowbanned-on-tiktok/"><u>[New] In 2024, TikTok Shadowban How to Get Unshadowbanned on Tiktok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-social-media-savvy-keywords-driving-tiktok-success-for-2024/"><u>[New] Social Media Savvy Keywords Driving TikTok Success for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-fb-video-extraction-techniques-for-pc-and-mac/"><u>[Updated] FB Video Extraction Techniques for PC & Mac</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-hot-off-the-tiktok-menu-top-dishes-and-challenges-for-2024/"><u>[Updated] Hot Off the TikTok Menu Top Dishes & Challenges for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-money-saving-heavens-storage-service-big-file-batches/"><u>[Updated] Money-Saving Heavens Storage Service - Big File Batches</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-redefining-engagement-virtual-reality-in-education/"><u>[Updated] Redefining Engagement Virtual Reality in Education</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-the-path-to-personalized-tiktok-hash-creation/"><u>[Updated] The Path to Personalized TikTok Hash Creation</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/elevate-content-appeal-with-these-essential-5-tiktok-caption-techniques-for-2024/"><u>Elevate Content Appeal with These Essential 5 TikTok Caption Techniques for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-dominate-your-feed-the-leading-trending-hashes-in-tiktok/"><u>In 2024, Dominate Your Feed The Leading Trending Hashes in TikTok</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/is-there-a-decline-in-chatgpt-smarts-or-myth-busting-time-openai-weighs-in/"><u>Is There a Decline in ChatGPT Smarts or Myth Busting Time - OpenAI Weighs In</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/leveraging-digital-insight-in-the-insurance-sector-insights-from-an-abbyy-specialist/"><u>Leveraging Digital Insight in the Insurance Sector: Insights From an ABBYY Specialist</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/top-relaxing-country-bops-and-beats-for-dance-parties-on-tiktok-for-2024/"><u>Top Relaxing Country Bops & Beats for Dance Parties on TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unleashing-music-from-tiktok-top-free-on-web-to-mp3-tools/"><u>Unleashing Music From TikTok Top Free, On-Web To MP3 Tools</u></a></li>
+</ul></div>
 
