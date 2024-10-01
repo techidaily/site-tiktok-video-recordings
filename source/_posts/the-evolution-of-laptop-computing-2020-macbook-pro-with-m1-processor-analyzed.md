@@ -1,7 +1,7 @@
 ---
 title: "The Evolution of Laptop Computing: 2020 MacBook Pro with M1 Processor Analyzed"
-date: 2024-08-10T04:02:36.780Z
-updated: 2024-08-11T04:02:36.780Z
+date: 2024-09-28T16:14:39.600Z
+updated: 2024-10-01T16:24:26.743Z
 categories:
   - BestProducts
 description: "This Article Describes The Evolution of Laptop Computing: 2020 MacBook Pro with M1 Processor Analyzed"
@@ -15,9 +15,6 @@ thumbnail: https://thmb.techidaily.com/b8a6614e5e46e83c73c99e937a620940173ecb3e5
 
 ## X-Plane 11 Global Flight Simulator
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/6zqUG0dXodiu77fxFaPt_4CTLHM=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_HeroSquare-05bcd9665c244e8591478794f6732934.jpg)
 
 Lifewire / Zach Sweat
@@ -42,11 +39,14 @@ Lifewire / Zach Sweat
 
 ## X-Plane 11 Global Flight Simulator
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/8OsXHzWBVNEzvelLnfybKyzm3bk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_HeroSquare-05bcd9665c244e8591478794f6732934.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -74,6 +74,13 @@ Lifewire / Zach Sweat
 
  Lifewire / Zach Sweat
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Setup Process: Preflight checklist**
 
  Currently, the game is available to be purchased from a number of online retailers in either disc or digital download format. We opted to go the old-school route and purchased the game in a pack of discs, so we’ll cover this option, but if you want to grab the software online, the steps are mostly the same (even simpler).
@@ -92,16 +99,17 @@ Lifewire / Zach Sweat
 
  Once you’ve got it hooked up, Windows should recognize the device and download the necessary drivers. When those have completed installing, you should be able to see the HOTAS connected in X-Plane 11 under the control settings. You’ll also be able to fine-tune things based on your preference from there.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/O9MXEQGpCTKXA5qNcF6nXai8L2o=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_03-90ad9c4205af48bcbd8fcc163c630a5a.jpg)
 
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Gameplay: As close as you can get to flying a plane in your home**
 
  Booting up X-Plane 11, you’re greeted with a host of available options to choose from before your flight. While not nearly as deep as FSX, there are a lot of things you can pick between. If you’re just getting started, the Flight School will teach you the basics of flight in the game and allow you to get acclimated. If you’re not a newcomer, however, you can jump straight into the plane and environment of your choosing.
@@ -116,16 +124,23 @@ Lifewire / Zach Sweat
 
  While testing out X-Plane 11, we did experience some issues, but more so in the graphics department than the gameplay itself, which we’ll touch on in the next section.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![X-Plane 11 Global Flight Simulator](https://www.lifewire.com/thmb/GF7rAjDnQ1m4Lngb7N3ShcMRA6U=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW840502X-Plane11FlightSim_05-4039c04a1e16492e8b1c6024167e28f8.jpg)
 
  Lifewire / Zach Sweat
 
 <!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Graphics: Breathtaking visuals, but subpar optimization**
 
  With such a monster storage requirement, it’s no surprise that the details and graphics in X-Plane 11 are pretty remarkable. Planes themselves are the focus here, so the textures are superb. Also because Laminar chose to focus on fewer aircraft overall, the ones they’ve included all feel exceptionally well fleshed out. That tradeoff might not appeal to those who want hundreds of vehicles to select from, but it does make the selection in the game quite impressive.
@@ -160,9 +175,6 @@ Lifewire / Zach Sweat
 
  One nice feature with X-Plane is that you do have the option to install mods. These free packs of user-generated content can really spice things up by providing custom aircraft and environments if you’re looking to add content without adding more money. They aren’t as numerous as the mod options for FSX, but they’re there if you want them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ## **X-Plane 11 Global Flight Simulator vs. Microsoft Flight Simulator X**
 
  Comparing a classic staple in flight simulators like FSX to a more modern one like X-Plane 11 might feel a bit strange, but these two games are the most popular around even today. Given that FSX is about a decade older than X-Plane 11, you’ll need to understand that there are some big differences in terms of modernization between the two.
@@ -187,6 +199,13 @@ Lifewire / Zach Sweat
 * [Blade E-flite mCX2 RTF RC](https://www.lifewire.com/blade-e-flite-mcx2-rtf-rc-helicopter-review-4774670)
 * [Syma S111G RC Helicopter](https://www.lifewire.com/syma-s111g-rc-helicopter-review-4774696)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Specs
 
 * Product Name  11 Global Flight Simulator
@@ -199,14 +218,11 @@ Lifewire / Zach Sweat
 * Genre  Simulator
 * ESRB rating  E
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -215,4 +231,16 @@ Lifewire / Zach Sweat
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-discover-top-6-free-web-apps-for-transforming-tiktok-into-mp3/"><u>[New] 2024 Approved Discover Top 6 Free Web Apps for Transforming TikTok Into MP3</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-final-steps-for-irreversible-tiktok-un-signup-for-2024/"><u>[Updated] Final Steps for Irreversible TikTok Un-Signup for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-pixel-chronicles-mastering-the-art-of-recording-your-minecraft-world/"><u>2024 Approved Pixel Chronicles Mastering the Art of Recording Your Minecraft World</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/capture-the-moment-right-using-snap-in-teams/"><u>Capture the Moment Right Using Snap in Teams</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-review-of-huawei-mediapad-m5-a-masterpiece-for-immersive-sight-and-sound/"><u>In-Depth Review of Huawei MediaPad M5 – A Masterpiece for Immersive Sight and Sound</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-xiaomi-13-ultra-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Xiaomi 13 Ultra | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-to-spectacular-80s-flicks-you-cant-miss/"><u>The Ultimate Guide to Spectacular '80S Flicks You Can't Miss</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-unsung-heros-guide-to-tiktok-live-participation-for-2024/"><u>The Unsung Hero's Guide to TikTok Live Participation for 2024</u></a></li>
+</ul></div>
 

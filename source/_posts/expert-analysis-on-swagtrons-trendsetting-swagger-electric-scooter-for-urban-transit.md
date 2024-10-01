@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis on Swagtron's Trendsetting Swagger Electric Scooter for Urban Transit
-date: 2024-09-23T16:07:01.556Z
-updated: 2024-09-26T16:45:01.019Z
+date: 2024-09-27T17:19:19.645Z
+updated: 2024-10-01T16:12:31.782Z
 categories:
   - BestProducts
 description: This Article Describes Expert Analysis on Swagtron's Trendsetting Swagger Electric Scooter for Urban Transit
@@ -38,23 +38,9 @@ Lifewire / Benjamin Zeman
 
 4.7
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Linksys WRT3200ACM Tri-Stream Gigabit Wi-Fi Router
 
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/kijZwQ0wg7f3H2i3JR3-uGRi0kg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_HeroSquare-e40aba90df584fa4ad4a1053eeb538e6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Benjamin Zeman
 
@@ -79,13 +65,6 @@ Lifewire / Benjamin Zeman
  Linksys really kicked off the router customization movement in 2002 with its first open source router, the iconic WRT54G. The WRT1900AC followed twelve years later in 2014 and the Linksys WRT3200ACM Router improved upon it in 2016\. It introduced the fastest 5GHz band on the market, is Linksys’ first router with Tri-Stream 160, and it’s capable of Multi-User Multiple Input Multiple Output (MU-MIMO) data streaming and beamforming. This router delivers blazing fast speeds and a number of customized settings with advanced monitoring capabilities you won’t find in a normal router.
 
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/xTJh9nKc58L-dK_nTJKAOHW7WCY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_04-d6fd78091be2489c83483672ac57af2e-7c960043bf5f4a259a43c30db125f0f9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Benjamin Zeman
 
@@ -113,7 +92,27 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/FS8mMgztL5cutF2feLNI4jorFig=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_03-bc6cced22d1c4e12b578da3f8b644d0c.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Benjamin Zeman
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Connectivity: 3200ACM and MU-MIMO capable**
 
@@ -122,19 +121,6 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  Multi-User Multiple Input Multiple Output (MU-MIMO) capability means the router can efficiently handle bandwidth in homes with devices of different speed grades. It’s essentially like each device has its own router because they connect at their fastest speeds and transmit data simultaneously instead of sequentially. That means you can be running multiple devices throughout the house and each can connect at their highest speed.
 
  The Linksys WRT3200ACM also has four wired gigabit ethernet ports to directly connect devices like your[gaming console](https://www.lifewire.com/best-gaming-consoles-4154610) or[smart TV](https://www.lifewire.com/best-smart-tvs-4135681) . The[USB 3.0](https://www.lifewire.com/what-is-usb-3-0-2626038) and USB 2.0/eSata ports allow you to connect external storage devices and share things like your video collection across your network. The Linksys WRT3200ACM definitely covered all the connectivity bases that we needed.
-
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Network Performance: Strong 5.4GHz but weak 2.4GHz**
 
@@ -149,10 +135,10 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  Lifewire / Benjamin Zeman
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Software: Stock is great, open source is better**
@@ -168,6 +154,19 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  Flashing Linux based alternatives like[OpenWrt](https://openwrt.org/) or[DD-WRT](https://dd-wrt.com/) is simple, and because the router is made with them in mind, firmware will be more stable than[other routers](https://www.lifewire.com/best-wireless-routers-4038590) . Currently DD-WRT looks like it is a little behind OpenWrt when it comes to additional features not included in the stock firmware. Both projects are actively working on updates and Linksys does encourage you to go with third-party firmwares, but warns that installing third-party firmware is done at your own risk and will void your warranty.
 
  If you’re new to open source router firmware, we encourage you to do your research first. Open source firmware is really for users who are familiar with building and debugging their own software. It requires more manual maintenance and you’ll need to keep up with any new releases yourself. There are a lot of other less expensive Linksys routers available if you want to test the waters before jumping in with the WRT3200ACM.
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Good if you need open source**
 
@@ -194,6 +193,13 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 * [Asus RT-AC88U Gaming Router](https://www.lifewire.com/asus-rt-ac88u-gaming-router-review-4589583)
 * [Synology RT2600ac Wi-Fi Router](https://www.lifewire.com/synology-rt2600ac-wi-fi-router-review-4797390)
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -232,19 +238,19 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/1716069655422-new-2024-approved-activating-screen-recording-with-internal-devices-in-huawei-mate-and-p-series-mate-1020-p2010/"><u>[New] 2024 Approved Activating Screen Recording with Internal Devices in Huawei Mate and P Series (Mate 10/20; P20/10).</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-country-grooves-for-calmness-top-20-tiktok-anthems/"><u>[New] Country Grooves for Calmness Top 20 TikTok Anthems</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-in-2024-hit-the-mark-video-that-skyrockets-in-popularity/"><u>[New] In 2024, Hit the Mark Video that Skyrockets in Popularity</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-step-by-step-how-to-convert-and-download-vids-from-social-media-to-mp3s-for-2024/"><u>[New] Step-by-Step How to Convert and Download Vids From Social Media to MP3s for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-transformative-tiktok-techniques-for-business-expansion/"><u>[New] Transformative TikTok Techniques for Business Expansion</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-copyright-quest-for-content-creators-tiktok-edition/"><u>[Updated] 2024 Approved Copyright Quest for Content Creators (TikTok Edition)</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-expert-techniques-to-upload-strikingly-good-content-on-tiktok-via-mac-and-windows/"><u>[Updated] 2024 Approved Expert Techniques to Upload Strikingly Good Content on TikTok via Mac and Windows</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-sketching-the-perfect-end-credits-scene-for-your-tiktok/"><u>[Updated] 2024 Approved Sketching the Perfect End-Credits Scene for Your TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-boost-your-social-media-reach-the-most-popular-hashtags-on-tiktok/"><u>[Updated] Boost Your Social Media Reach The Most Popular Hashtags on TikTok</u></a></li>
-<li><a href="https://some-tips.techidaily.com/free-online-converter-avi-to-mp4-effortless-video-format-changing-with-movavi/"><u>Free Online Converter: AVI to MP4 - Effortless Video Format Changing with Movavi</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-epson-ds-530-software-compatible-with-64-bit-windows-10/"><u>Get Epson DS-530 Software Compatible with 64-Bit Windows 10</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/how-does-transfer-learning-empower-ai-an-intuitive-approach/"><u>How Does Transfer Learning Empower AI? An Intuitive Approach</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/unlocking-instagrams-hidden-gems-tailored-to-your-passions-for-2024/"><u>Unlocking Instagram’s Hidden Gems Tailored to Your Passions for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/your-go-to-source-for-micromobility-intelligence-event-schedules-fresh-stories-and-inside-talk/"><u>Your Go-To Source for Micromobility Intelligence: Event Schedules, Fresh Stories, and Inside Talk</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-harmonizing-chrome-android-ios-for-tiktok-sharing/"><u>[New] In 2024, Harmonizing Chrome, Android, iOS for TikTok Sharing</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-streamline-slides-to-cinematic-content/"><u>[New] Streamline Slides to Cinematic Content</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-perfect-your-tiktok-with-these-stitching-techniques/"><u>[Updated] 2024 Approved Perfect Your TikTok With These Stitching Techniques</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-a-swift-guide-to-faster-more-engaging-tiktoks-for-2024/"><u>[Updated] A Swift Guide to Faster, More Engaging TikToks for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-crossing-the-line-guesting-in-friends-tiktok-shows/"><u>[Updated] Crossing the Line Guesting in Friends' TikTok Shows</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-ensuring-profitability-in-youtube-with-correct-monetization-for-2024/"><u>[Updated] Ensuring Profitability in YouTube with Correct Monetization for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unveiling-the-ultimate-top-10-tiktok-gaming-squad/"><u>[Updated] Unveiling the Ultimate Top 10 TikTok Gaming Squad</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-mastering-snaps-in-zooms-camera-feature/"><u>2024 Approved Mastering Snaps in Zoom's Camera Feature</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/all-about-creating-compelling-twitresponses-for-2024/"><u>All About Creating Compelling TwitResponses for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-restore-scroll-wheel-action-on-your-windows-10-laptops-touchpad/"><u>How to Restore Scroll Wheel Action on Your Windows 10 Laptop's Touchpad</u></a></li>
+<li><a href="https://driver-install.techidaily.com/improve-windows-10s-graphics-support-acer-style/"><u>Improve Windows 10'S Graphics Support, Acer Style</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-unexpected-tiktok-rewind-recover-lost-posts-easily/"><u>In 2024, Unexpected TikTok Rewind – Recover Lost Posts Easily?</u></a></li>
+<li><a href="https://driver-error.techidaily.com/no-trouble-securely-installed-nvidia-drivers-2024/"><u>No Trouble: Securely Installed Nvidia Drivers 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/windows-7-flip-screen-fix/"><u>Windows 7 Flip Screen Fix</u></a></li>
 </ul></div>
 

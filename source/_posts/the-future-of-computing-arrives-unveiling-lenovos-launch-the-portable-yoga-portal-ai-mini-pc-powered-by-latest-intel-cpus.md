@@ -1,7 +1,7 @@
 ---
 title: "The Future of Computing Arrives: Unveiling Lenovo's Launch - The Portable Yoga Portal AI Mini PC Powered by Latest Intel CPUs"
-date: 2024-08-10T04:01:54.008Z
-updated: 2024-08-11T04:01:54.008Z
+date: 2024-09-24T17:24:41.267Z
+updated: 2024-10-01T19:07:49.892Z
 tags:
   - desktop
 categories:
@@ -17,16 +17,10 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
  Image 1 of 2
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Shots of the Fan PC build from throughout the original video.](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
  (Image credit: 苏打baka on Bilibili)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Shots of the Fan PC build from throughout the original video.](https://vanilla.futurecdn.net/cyclingnews/media/img/missing-image.svg)
 
  (Image credit: 苏打baka on Bilibili)
@@ -41,9 +35,6 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -52,14 +43,11 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -68,4 +56,31 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-essential-tips-for-attending-tiktok-live-events/"><u>[New] 2024 Approved Essential Tips for Attending TikTok Live Events</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-how-to-crop-image-online/"><u>[New] How To Crop Image Online?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-boost-your-tiktok-presence-with-strategic-captioning-methods/"><u>[New] In 2024, Boost Your TikTok Presence with Strategic Captioning Methods</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-elevate-engagement-4-steps-to-add-fb-story-link/"><u>[New] In 2024, Elevate Engagement 4 Steps to Add FB Story Link</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-break-into-the-heart-of-a-tiktok-live-session-for-2024/"><u>[Updated] Break Into the Heart of a TikTok Live Session for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-generating-a-timeless-tiktok-outro-feature/"><u>[Updated] Generating a Timeless TikTok Outro Feature</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-accidental-tiktok-update-restore-or-reload-content/"><u>[Updated] In 2024, Accidental TikTok Update Restore or Reload Content?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-mastering-9gag-for-making-memes-a-step-by-step-guide-for-2024/"><u>[Updated] Mastering 9GAG for Making Memes A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-mastering-tiktokenas-a-game-changer-top-30-unique-username-suggestions/"><u>[Updated] Mastering TikTok'enas a Game Changer Top 30 Unique Username Suggestions</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-tiktoks-timeless-classics-the-songs-that-keep-coming-back-for-2024/"><u>[Updated] TikTok's Timeless Classics The Songs That Keep Coming Back for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-cross-into-the-world-of-shared-tiktok-experiences/"><u>2024 Approved Cross Into the World of Shared TikTok Experiences</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/best-image-enhancement-tools-of-the-year-top-10-selections-for-windowsmac-users/"><u>Best Image Enhancement Tools of the Year – Top 10 Selections for Windows/Mac Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-triumph-of-nintendos-wii-u-console/"><u>Exploring the Triumph of Nintendo's Wii U Console</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-itel-p55plus-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Itel P55+ Phone FRP Lock</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-silencing-sounds-techniques-for-audio-deletion-in-imovie-videos/"><u>New In 2024, Silencing Sounds Techniques for Audio Deletion in iMovie Videos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/top-social-media-viewing-sites-fb-1-10-for-2024/"><u>Top Social Media Viewing Sites (FB) #1-10 for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unlock-ai-potential-chrome-helps-you-chatgpt-masterfully/"><u>Unlock AI Potential: Chrome Helps You ChatGPT Masterfully</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
