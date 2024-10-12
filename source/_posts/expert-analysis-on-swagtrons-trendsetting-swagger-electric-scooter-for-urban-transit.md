@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis on Swagtron's Trendsetting Swagger Electric Scooter for Urban Transit
-date: 2024-09-30T17:24:00.101Z
-updated: 2024-10-06T21:34:53.780Z
+date: 2024-10-10T18:01:26.711Z
+updated: 2024-10-12T17:36:22.424Z
 categories:
   - BestProducts
 description: This Article Describes Expert Analysis on Swagtron's Trendsetting Swagger Electric Scooter for Urban Transit
@@ -38,13 +38,6 @@ Lifewire / Benjamin Zeman
 
 4.7
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Linksys WRT3200ACM Tri-Stream Gigabit Wi-Fi Router
 
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/kijZwQ0wg7f3H2i3JR3-uGRi0kg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_HeroSquare-e40aba90df584fa4ad4a1053eeb538e6.jpg)
@@ -75,6 +68,13 @@ Lifewire / Benjamin Zeman
 
 Lifewire / Benjamin Zeman
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: A nostalgic look**
 
  The Linksys WRT3200ACM Router sticks with the familiar black and blue design of its predecessors. At 9.68 x 7.63 x 2.04 inches and 28.16 ounces it’s fairly large, and the four inch antennas add some additional height, though each antenna is adjustable and detachable.
@@ -102,10 +102,16 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  Lifewire / Benjamin Zeman
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: 3200ACM and MU-MIMO capable**
@@ -126,14 +132,14 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/wVmSkbisZVIprvanAm1UGl20r0s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_02-b14c9e4005d248688b03f08126d3f210.jpg)
 
- Lifewire / Benjamin Zeman
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Lifewire / Benjamin Zeman
 
 ## **Software: Stock is great, open source is better**
 
@@ -148,13 +154,6 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  Flashing Linux based alternatives like[OpenWrt](https://openwrt.org/) or[DD-WRT](https://dd-wrt.com/) is simple, and because the router is made with them in mind, firmware will be more stable than[other routers](https://www.lifewire.com/best-wireless-routers-4038590) . Currently DD-WRT looks like it is a little behind OpenWrt when it comes to additional features not included in the stock firmware. Both projects are actively working on updates and Linksys does encourage you to go with third-party firmwares, but warns that installing third-party firmware is done at your own risk and will void your warranty.
 
  If you’re new to open source router firmware, we encourage you to do your research first. Open source firmware is really for users who are familiar with building and debugging their own software. It requires more manual maintenance and you’ll need to keep up with any new releases yourself. There are a lot of other less expensive Linksys routers available if you want to test the waters before jumping in with the WRT3200ACM.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Good if you need open source**
 
@@ -177,10 +176,10 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  The Linksys WRT3200ACM Router is a great buy from a great company that’s been in the market for a long time. Whether you purchase the Linksys WRT3200ACM new or refurbished, it’s a fantastic value. The only suggestion we have is that you make sure it’s what you actually want and need—if you aren’t going to use it for its open source capabilities, you might want to take a look at some other options. If open source is your jam, you’ll love this router.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -188,6 +187,13 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 * [Asus RT-AC88U Gaming Router](https://www.lifewire.com/asus-rt-ac88u-gaming-router-review-4589583)
 * [Synology RT2600ac Wi-Fi Router](https://www.lifewire.com/synology-rt2600ac-wi-fi-router-review-4797390)
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -226,21 +232,20 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-strategies-for-harvesting-fb-status-video-archives/"><u>[New] 2024 Approved Strategies for Harvesting FB Status Video Archives</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-expertly-calculated-earnings-tiktoks-finest-tools/"><u>[New] Expertly Calculated Earnings TikTok's Finest Tools</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-becoming-a-viral-visionary-with-these-10-tiktok-insights/"><u>[New] In 2024, Becoming a Viral Visionary with These 10 TikTok Insights</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-best-5-tiktok-fonts-generator-of-2023-to-gain-more-views/"><u>[New] In 2024, Best 5 TikTok Fonts Generator of 2023 to Gain More Views</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-echoes-of-harmony-in-a-social-sphere/"><u>[New] In 2024, Echoes of Harmony in a Social Sphere</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-tiktok-speak-up-a-step-by-step-instructional-guide/"><u>[New] In 2024, TikTok Speak Up A Step-by-Step Instructional Guide</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-ultimate-pc-and-windows-edition-list-of-tiktok-edits-tools/"><u>[New] In 2024, Ultimate PC & Windows Edition List of TikTok Edits Tools</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-transform-ordinary-pictures-into-viral-masterpieces-on-tiktok-for-2024/"><u>[New] Transform Ordinary Pictures Into Viral Masterpieces on TikTok for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-instagram-elite-discover-the-leading-25-influential-souls-for-2024/"><u>[Updated] The Instagram Elite Discover the Leading 25 Influential Souls for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/clearing-up-visual-glitches-a-comprehensive-guide-to-fixing-directdraw-failures/"><u>Clearing Up Visual Glitches: A Comprehensive Guide to Fixing DirectDraw Failures</u></a></li>
-<li><a href="https://common-error.techidaily.com/eliminating-latency-in-your-windows-11-keyboard-fixes-and-best-practices/"><u>Eliminating Latency in Your Windows 11 Keyboard – Fixes and Best Practices</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/explore-sites-where-you-can-procure-youtube-affiliate-partnerships-for-2024/"><u>Explore Sites Where You Can Procure Youtube Affiliate Partnerships for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-vivo-y100-5g-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Vivo Y100 5G Phone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-tutorial-on-cost-free-gsm-to-mp3-file-conversion/"><u>Step-by-Step Tutorial on Cost-Free GSM to MP3 File Conversion</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-to-the-highest-quality-magsafe-wallets-expert-ratings-and-detailed-analysis/"><u>Ultimate Guide to the Highest Quality MagSafe Wallets : Expert Ratings & Detailed Analysis</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/unleash-creativity-with-free-excellent-facebook-picture-makers/"><u>Unleash Creativity with Free, Excellent Facebook Picture Makers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-100-safe-sources-for-legitimate-tiktok-growth/"><u>[New] 2024 Approved 100% Safe Sources for Legitimate TikTok Growth</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-crafting-prime-tiktok-openings-using-macos/"><u>[New] 2024 Approved Crafting Prime TikTok Openings Using MacOS</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-the-right-move-copyright-validation-before-posting-on-tiktok/"><u>[New] 2024 Approved The Right Move Copyright Validation Before Posting on TikTok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-boosting-tiktok-video-playback-speeds-for-2024/"><u>[New] Boosting TikTok Video Playback Speeds for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-proactive-copyright-checking-for-safe-tiktok-sharing/"><u>[New] In 2024, Proactive Copyright Checking for Safe TikTok Sharing</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-discover-the-10-cutestscariest-tiktok-filters-ever/"><u>[Updated] Discover the 10 Cutest/Scariest TikTok Filters Ever</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-bold-profile-features-for-captivating-your-tiktok-audience/"><u>[Updated] In 2024, Bold Profile Features for Captivating Your TikTok Audience</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-crafting-the-perfect-facebook-video-post-pcandroid-techniques/"><u>2024 Approved Crafting the Perfect Facebook Video Post, PC/Android Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-the-secret-sauce-of-successful-pixlr-editing/"><u>2024 Approved The Secret Sauce of Successful Pixlr Editing</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-ispoofer-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Vivo S17t? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-the-ultimate-guide-to-becoming-a-tiktok-live-companion/"><u>In 2024, The Ultimate Guide to Becoming a TikTok Live Companion</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unleash-creativity-gratuity-in-humor-tools/"><u>In 2024, Unleash Creativity Gratuity in Humor Tools</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-pc-boot-problems-strategies-for-a-smooth-post-process/"><u>Mastering PC Boot Problems: Strategies for a Smooth POST Process</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/rectifying-body-stream-errors-with-chatgpt/"><u>Rectifying Body-Stream Errors with ChatGPT</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-cut-edit-repeat-top-10-free-webm-video-editing-software/"><u>Updated In 2024, Cut, Edit, Repeat Top 10 Free WebM Video Editing Software</u></a></li>
 </ul></div>
 
