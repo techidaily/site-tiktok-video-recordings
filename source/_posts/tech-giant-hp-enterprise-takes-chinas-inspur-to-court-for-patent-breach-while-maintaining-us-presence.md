@@ -1,7 +1,7 @@
 ---
 title: Tech Giant HP Enterprise Takes China's Inspur to Court for Patent Breach While Maintaining U.S. Presence
-date: 2024-10-05T17:59:20.512Z
-updated: 2024-10-12T20:09:20.111Z
+date: 2024-10-13T16:00:42.370Z
+updated: 2024-10-18T16:29:55.876Z
 tags:
   - desktop
 categories:
@@ -72,24 +72,25 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-crafting-engaging-videos-with-adobe-captivate/"><u>[New] In 2024, Crafting Engaging Videos with Adobe Captivate</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-big-heads-on-tiktok-techniques-for-striking-visual-impact-3-approaches/"><u>[Updated] Big Heads on TikTok Techniques for Striking Visual Impact (3 Approaches)</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-the-beat-of-the-future-top-emerging-raps-on-tiktok/"><u>[Updated] In 2024, The Beat of the Future Top Emerging Raps on TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-mastering-the-art-of-tiktok-with-apple-and-windows-devices-for-2024/"><u>[Updated] Mastering the Art of TikTok with Apple and Windows Devices for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-navigating-sponsorships-partnering-effectively-with-brands-live/"><u>2024 Approved Navigating Sponsorships Partnering Effectively with Brands Live</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/differing-approaches-by-computer-companies-in-fulfilling-intels-extended-cpu-warranty-during-hardware-malfunctions/"><u>Differing Approaches by Computer Companies in Fulfilling Intel's Extended CPU Warranty During Hardware Malfunctions</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Samsung Galaxy M14 4G | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-partnership-performed-live-tiktok-edition/"><u>In 2024, Partnership Performed Live TikTok Edition</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-this-article-introduces-some-of-the-best-web-based-online-vertical-video-editors/"><u>New In 2024, This Article Introduces some of the Best Web-Based Online Vertical Video Editors</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/professional-insights-top-10-igtv-pros/"><u>Professional Insights Top 10 IGTV Pros</u></a></li>
-<li><a href="https://win-lab.techidaily.com/swf-online-swf-movavi/"><u>SWF 파일을 원격으로 제공하는 무료 Online SWF 변환 도구 - Movavi</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-poco-m6-pro-4g-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Poco M6 Pro 4G to iPhone 14/15 | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-innovation-in-display-tech-top-10-of-4k-displays/"><u>[New] In 2024, Innovation in Display Tech #Top 10 of 4K Displays</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-smooth-steps-top-20-chill-out-country-hits-for-grooving-tiktok/"><u>[New] Smooth Steps Top 20 Chill-Out Country Hits for Grooving (TikTok)</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-influencers-list-25-top-influencers-you-should-know/"><u>[Updated] Instagram Influencers List 25 Top Influencers You Should Know</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-unveiling-zdsofts-video-magic-for-2024/"><u>[Updated] Unveiling ZDSoft's Video Magic for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-enhancing-iphone-x-security-mending-facial-detection-glitches/"><u>2024 Approved Enhancing iPhone X Security Mending Facial Detection Glitches</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/enhancing-communication-snap-camera-in-microsoft-teams/"><u>Enhancing Communication Snap Camera in Microsoft Teams</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/novice-to-pro-mastering-the-art-of-youtube-shorts-for-2024/"><u>From Novice to Pro Mastering the Art of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Samsung Galaxy S23 | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-step-into-the-world-of-aplus-tiktok-videos-with-designed-video-templates/"><u>In 2024, Step Into the World of A+ TikTok Videos with Designed Video Templates</u></a></li>
+<li><a href="https://network-issues.techidaily.com/tailoring-pc-specifications-for-software-compatibility/"><u>Tailoring PC Specifications for Software Compatibility</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-poco-m6-5g-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on Poco M6 5G without backup.</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unison-choirs-the-duet-experience-on-tiktok/"><u>Unison Choirs The Duet Experience on TikTok</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

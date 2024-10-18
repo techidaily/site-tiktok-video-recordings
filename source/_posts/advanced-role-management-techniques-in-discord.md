@@ -1,7 +1,7 @@
 ---
 title: "Advanced Role Management Techniques in Discord"
-date: 2024-08-15T12:21:23.459Z
-updated: 2024-08-16T12:21:23.459Z
+date: 2024-10-14T17:54:56.973Z
+updated: 2024-10-18T17:21:03.969Z
 tags:
   - ai video
   - ai discord
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/c7779ebd6615899057fd1d41459b53b981bc532c7
 
 # How to Add Roles in Discord?
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -41,16 +38,10 @@ So, let us learn the art of delegation on Discord! This guide will help you with
 * [Part 5: How to Add Roles on Discord Mobile?](#part5)
 * [Part 6: Adding Roles to Discord FAQs](#part6)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Discord Server Permissions You Can Set Up
 
 To give you a heads-up, there are around 29 permissions that you can adjust over a Discord server. More specifically, there are 7 voice permissions, 9 permissions related to texts, and about 13 permissions dealing with the server.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. General server permission
 
 Administrator – this is the highest permission that you can grant to a user. Think twice before giving this authority to anyone.
@@ -70,10 +61,12 @@ Manage Webhooks – if you have this authority, you can add, modify, and remove 
 Read Text Channels & See Voice Channels – a user with this permission can read text channels.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 2\. Membership permissions
 
 Ban Members – a member with permission, can ban members from the server.
@@ -106,9 +99,6 @@ Use External Emojis – if enabled, users can send emojis from other servers.
 
 Add Reactions – with this; users can add new reactions to a text.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Voice channel permissions
 
 Connect – enables users to connect themselves over the voice channel.
@@ -127,16 +117,27 @@ Priority Speaker – when this permission is turned on for a user, other’s
 
 this permission allows the user to reduce the volume of other users when this user is speaking so that their words are louder on the channel.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ### 5\. Advanced permissions
 
 Includes the 'Administrator' permission, which by default enables all the permissions to the assigned user.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make and Add Roles in Discord on Computer
 
 The desktop app and Browser resemble the mobile apple a lot. The process of assigning roles and configuring members is more or less the same across devices. First, you need to create roles and define their authority before assigning these roles to some members.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to create roles in Discord?
 
@@ -160,10 +161,6 @@ To be able to assign roles, you should first create them
 4. From the drop-down menu that appears, select a role you want to assign to that member.
 1. You will notice that the color changes as per your settings. And this is how you assign roles to a server.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Part 3: How to Manage Roles in Discord?
 
 After you learn **how to make roles in Discord**, you might want to manage them.
@@ -174,9 +171,6 @@ The quickest and easiest way to manage your bloating server is to let all member
 
 Further, you can easily figure out what roles you have assigned to whom. Due to these colors, the other members can identify moderators, admins, or other roles.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 ## Part 4: How to Delete Roles in Discord?
 
 Honestly, removing Discord roles easier than setting them up. There are hardly a few steps that you need to follow for role removal.
@@ -213,6 +207,13 @@ You can repeat this multiple times to create more roles.
 
 Save the changes, and you are good to go! You can assign multiple roles to a member.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 6: FAQs about Discord Server Roles
 
 Just some obvious things you might wonder about.
@@ -242,13 +243,18 @@ This is likely to happen if the server owner gave you the role of admin, but the
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -257,5 +263,20 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-the-art-of-influencing-with-tiktok-marketing/"><u>[New] 2024 Approved The Art of Influencing with TikTok Marketing</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-top-7-free-apps-for-tiktok-creations-on-macos-devices/"><u>[New] 2024 Approved Top 7 Free Apps for TikTok Creations on MacOS Devices</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-guide-to-retaining-your-tiktok-content-post-reload-glitch/"><u>[New] In 2024, Guide to Retaining Your TikTok Content Post-Reload Glitch</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-discovering-your-own-original-tagline-in-the-realm-of-tiktok/"><u>[Updated] Discovering Your Own Original Tagline in the Realm of TikTok</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-simple-steps-to-a-stellar-vlog-journey/"><u>[Updated] In 2024, Simple Steps to a Stellar Vlog Journey</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-pro-video-creators-guide-to-ideal-laptops/"><u>[Updated] Pro Video Creators' Guide to Ideal Laptops</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-27-hilarious-tiktok-skits-for-smiles/"><u>2024 Approved 27 Hilarious TikTok Skits for Smiles</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/convert-mov-files-to-mp4-free-of-charge-a-simple-guide/"><u>Convert MOV Files to MP4 Free of Charge: A Simple Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-honor-90-gt-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Honor 90 GT Android SIM Unlock APK</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-vivo-y36i-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Vivo Y36i without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-honor-magic-v2-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Honor Magic V2? Fixed | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unlocking-the-code-a-guide-to-your-own-special-tiktok-hash-for-2024/"><u>Unlocking the Code A Guide to Your Own Special TikTok Hash for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/wondershare-filmoramp4/"><u>Wondershare FilmoraからMP4への動画変換方法 : 詳細チュートリアル</u></a></li>
+</ul></div>
 

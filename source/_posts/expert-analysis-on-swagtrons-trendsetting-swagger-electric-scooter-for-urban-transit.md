@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis on Swagtron's Trendsetting Swagger Electric Scooter for Urban Transit
-date: 2024-10-10T18:01:26.711Z
-updated: 2024-10-12T17:36:22.424Z
+date: 2024-10-12T18:21:00.724Z
+updated: 2024-10-18T16:56:52.982Z
 categories:
   - BestProducts
 description: This Article Describes Expert Analysis on Swagtron's Trendsetting Swagger Electric Scooter for Urban Transit
@@ -66,14 +66,14 @@ Lifewire / Benjamin Zeman
 
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/xTJh9nKc58L-dK_nTJKAOHW7WCY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_04-d6fd78091be2489c83483672ac57af2e-7c960043bf5f4a259a43c30db125f0f9.jpg)
 
-Lifewire / Benjamin Zeman
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Lifewire / Benjamin Zeman
 
 ## **Design: A nostalgic look**
 
@@ -102,16 +102,10 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  Lifewire / Benjamin Zeman
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Connectivity: 3200ACM and MU-MIMO capable**
@@ -133,10 +127,10 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/wVmSkbisZVIprvanAm1UGl20r0s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_02-b14c9e4005d248688b03f08126d3f210.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Benjamin Zeman
@@ -161,6 +155,13 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
  Even if you don’t go with a refurb, the WRT3200ACM is a good buy, though it’s not a necessity if you aren’t looking to utilize it for its open source capabilities—there are other, cheaper options on the market that will serve your needs just as well.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Linksys WRT3200ACM Router vs. Asus RT-AC5300 Router**
 
  Another router that tends to top the list of[open source routers](https://www.lifewire.com/best-wireless-routers-4038590) is the Asus RT-AC5300, a Tri-Band AC5300, MU-MIMO-capable router marketed towards gamers. This expensive router has a very large footprint and two antennas on each of the four sides. Its $400 MSRP is significantly higher than the Linksys WRT3200ACM, and the lowest retail price we’ve seen is around $270\. Even refurbished, it still goes for $250, the same price as the MSRP of the Linksys WRT3200ACM.
@@ -176,10 +177,10 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  The Linksys WRT3200ACM Router is a great buy from a great company that’s been in the market for a long time. Whether you purchase the Linksys WRT3200ACM new or refurbished, it’s a fantastic value. The only suggestion we have is that you make sure it’s what you actually want and need—if you aren’t going to use it for its open source capabilities, you might want to take a look at some other options. If open source is your jam, you’ll love this router.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -187,13 +188,6 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 * [Asus RT-AC88U Gaming Router](https://www.lifewire.com/asus-rt-ac88u-gaming-router-review-4589583)
 * [Synology RT2600ac Wi-Fi Router](https://www.lifewire.com/synology-rt2600ac-wi-fi-router-review-4797390)
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -232,20 +226,24 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-100-safe-sources-for-legitimate-tiktok-growth/"><u>[New] 2024 Approved 100% Safe Sources for Legitimate TikTok Growth</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-crafting-prime-tiktok-openings-using-macos/"><u>[New] 2024 Approved Crafting Prime TikTok Openings Using MacOS</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-the-right-move-copyright-validation-before-posting-on-tiktok/"><u>[New] 2024 Approved The Right Move Copyright Validation Before Posting on TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-boosting-tiktok-video-playback-speeds-for-2024/"><u>[New] Boosting TikTok Video Playback Speeds for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-proactive-copyright-checking-for-safe-tiktok-sharing/"><u>[New] In 2024, Proactive Copyright Checking for Safe TikTok Sharing</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-discover-the-10-cutestscariest-tiktok-filters-ever/"><u>[Updated] Discover the 10 Cutest/Scariest TikTok Filters Ever</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-bold-profile-features-for-captivating-your-tiktok-audience/"><u>[Updated] In 2024, Bold Profile Features for Captivating Your TikTok Audience</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-crafting-the-perfect-facebook-video-post-pcandroid-techniques/"><u>2024 Approved Crafting the Perfect Facebook Video Post, PC/Android Techniques</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-the-secret-sauce-of-successful-pixlr-editing/"><u>2024 Approved The Secret Sauce of Successful Pixlr Editing</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-ispoofer-on-vivo-s17t-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Vivo S17t? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-the-ultimate-guide-to-becoming-a-tiktok-live-companion/"><u>In 2024, The Ultimate Guide to Becoming a TikTok Live Companion</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-unleash-creativity-gratuity-in-humor-tools/"><u>In 2024, Unleash Creativity Gratuity in Humor Tools</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-pc-boot-problems-strategies-for-a-smooth-post-process/"><u>Mastering PC Boot Problems: Strategies for a Smooth POST Process</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/rectifying-body-stream-errors-with-chatgpt/"><u>Rectifying Body-Stream Errors with ChatGPT</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-cut-edit-repeat-top-10-free-webm-video-editing-software/"><u>Updated In 2024, Cut, Edit, Repeat Top 10 Free WebM Video Editing Software</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-healing-harmony-best-20-soothing-country-tracks-to-groove-on-tiktok-for-2024/"><u>[New] Healing Harmony Best 20 Soothing Country Tracks to Groove On TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-ootd-creation-on-a-mac-techniques-for-the-savvy-tiktoker-for-2024/"><u>[New] OOTD Creation on a Mac Techniques for the Savvy TikToker for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-transforming-tiktok-videos-with-creative-and-relevant-captions/"><u>[New] Transforming TikTok Videos with Creative and Relevant Captions</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-boost-your-creative-output-mastering-template-centric-video-making-for-tiktok/"><u>[Updated] 2024 Approved Boost Your Creative Output Mastering Template-Centric Video Making for TikTok</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-comprehensive-srt-to-xmlssa-transformation-guide-for-2024/"><u>[Updated] Comprehensive SRT to XML/SSA Transformation Guide for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-authenticity-matters-selecting-reliable-tiktok-followers/"><u>[Updated] In 2024, Authenticity Matters Selecting Reliable TikTok Followers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-recommendation-best-websites-to-download-funny-ringtones/"><u>[Updated] Recommendation Best Websites to Download Funny Ringtones</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unlocking-broader-audiences-tips-for-tiktok-hashtag-use-for-2024/"><u>[Updated] Unlocking Broader Audiences Tips for TikTok Hashtag Use for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-leaders-in-next-gen-sensory-devices/"><u>2024 Approved Leaders in Next-Gen Sensory Devices</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Vivo S17 | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/connect-your-fire-stick-to-a-smartphones-mobile-hotspot-for-uninterrupted-viewing/"><u>Connect Your Fire Stick to a Smartphone's Mobile Hotspot for Uninterrupted Viewing</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/elevating-earning-strategies-for-snapchat-influencers/"><u>Elevating Earning Strategies for Snapchat Influencers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-nokia-c210-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Nokia C210 To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-oppo-reno-11f-5g-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Oppo Reno 11F 5G to PC? | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-huaweiwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Huaweiwith/without a PC</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/innovative-approaches-for-bigger-character-portrayals-on-tiktok/"><u>Innovative Approaches for Bigger Character Portrayals on TikTok</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/integrate-voice-over-into-powerpoint-shows-easily-for-2024/"><u>Integrate Voice-Over Into PowerPoint Shows Easily for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/mastering-tiktoks-economy-with-these-8-profitable-methods-for-2024/"><u>Mastering TikTok's Economy with These 8 Profitable Methods for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/transforming-video-summaries-via-ideal-templates/"><u>Transforming Video Summaries via Ideal Templates</u></a></li>
 </ul></div>
 

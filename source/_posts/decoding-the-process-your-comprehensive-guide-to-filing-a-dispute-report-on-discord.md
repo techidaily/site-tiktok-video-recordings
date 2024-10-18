@@ -1,7 +1,7 @@
 ---
 title: "\"Decoding the Process  Your Comprehensive Guide to Filing a Dispute Report on Discord\""
-date: 2024-08-15T12:20:11.092Z
-updated: 2024-08-16T12:20:11.092Z
+date: 2024-10-14T18:13:19.476Z
+updated: 2024-10-18T17:06:40.953Z
 tags:
   - ai video
   - ai discord
@@ -50,9 +50,6 @@ Reporting helps make healthier communities and allows you to avoid conflicts and
 
 Today we will look into how to report someone on Discord using desktop and mobile devices. Moreover, we will look at other ways to deal with indecent behavior, such as kicking people or banning them.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: How to Report Users on Discord Desktop
 
 Before you can report a person to Discord's Trust and Safety team, you will need to enable Discord's developer mode.
@@ -92,9 +89,6 @@ Also, it would help if you gave context regarding your report describing how and
 
 Now, confirm that you are a human by completing the captcha and then click on "Submit." Discord will contact you via email if action is taken against your complaint.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to Report Users on Discord on iPhone And Android
 
 Just like on a desktop, you will first need to enable developer mode.
@@ -102,9 +96,6 @@ Just like on a desktop, you will first need to enable developer mode.
 1. After opening Discord on your mobile device, go to user settings by tapping on the gear icon or your profile picture next to your username
 2. On iPhone, tap on "Appearance" and then go to "Advanced," whereas on Android, go to "App Settings" and tap "Behavior"
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![report people on Discord mobile](https://images.wondershare.com/filmora/article-images/report-user-discord-mobile.jpg)
 
 1. Turn on developer mode by clicking on the slider under the "Chat Behavior" option
@@ -127,8 +118,12 @@ Now, you can send this information to the [Trust and Safety team](https://suppor
 3. Click on "Submit"
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How to Kick People on Discord
 
 Discord also allows you to take care of improper behavior yourself. If you are a moderator or server owner, you can kick people for violating Discord's guidelines.
@@ -158,8 +153,12 @@ If you happen to be a moderator or server owner, you have the authority to kick 
 4. Click on "Kick" again to confirm your decision
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: FAQs About Discord Reporting
 
 There is no need to Google responses to "How do you report someone on Discord," we have answers to the most frequently asked questions:
@@ -168,9 +167,6 @@ There is no need to Google responses to "How do you report someone on Discord," 
 
 According to a [moderator on Discord's subreddit](https://www.reddit.com/r/discordapp/comments/ave1x3/are%5Freports%5Fanonymous/), information regarding a reported case remains between the T&S team and the reporter. Nothing regarding the complaint is shared with the individual kicked.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### What Happens If I Report Someone on Discord?
 
 After you report someone on Discord, the T&S team goes through the evidence to justify or negate your claims.
@@ -181,6 +177,13 @@ After conducting their research and deciding upon a punishment, the T&S team wil
 
 In minor offenses, the T&S team will reach out to the reporter and teach them how to block the user rather than take direct action.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Can You Report Someone on Discord for Being Under 13?
 
 Individuals under the age of 13 are not permitted to use Discord unless they have permission from a parent or guardian. However, it is not very easy to prove that the user is below a certain age.
@@ -189,13 +192,18 @@ If you know someone who is undoubtedly underage, then you can report them to the
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
-
-
 
 <ins class="adsbygoogle"
       style="display:block"
@@ -204,5 +212,26 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-enhancing-instagram-experience-with-in-story-captions/"><u>[New] 2024 Approved Enhancing Instagram Experience with In-Story Captions</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-epic-tiktok-success-the-virality-formula/"><u>[Updated] 2024 Approved Epic TikTok Success The Virality Formula</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-unleashing-your-monetary-potential-a-filmmakers-guide-to-tiktok-wealth/"><u>[Updated] 2024 Approved Unleashing Your Monetary Potential A Filmmaker's Guide to TikTok Wealth</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-achieving-instagrammable-proportion-the-self-clone-method-on-tiktok-for-2024/"><u>[Updated] Achieving Instagrammable Proportion The Self-Clone Method on TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-essential-insights-using-tiktok-web-on-macos-for-2024/"><u>[Updated] Essential Insights Using TikTok Web on macOS for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-how-to-do-siri-voice-on-tiktok/"><u>[Updated] How to Do Siri Voice on TikTok?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-behind-the-scenes-making-melodic-tiktoks/"><u>[Updated] In 2024, Behind the Scenes Making Melodic TikToks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-elite-10-hash-trackers-for-major-social-networks-fb-twt-and-ig/"><u>[Updated] In 2024, Elite 10 Hash Trackers for Major Social Networks FB, Twt & IG</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-choose-the-best-free-introduction-maker/"><u>[Updated] In 2024, How to Choose the Best Free Introduction Maker</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-in-depth-comparison-of-trillers-features-to-tiktok-max-156-chars/"><u>[Updated] In 2024, In-Depth Comparison of Triller's Features to TikTok (Max 156 Chars)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-strategies-to-bypass-invisible-restrictions-on-tiktok-for-2024/"><u>[Updated] Strategies to Bypass Invisible Restrictions on TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-the-art-of-music-laced-tiktok-production/"><u>[Updated] The Art of Music-Laced TikTok Production</u></a></li>
+<li><a href="https://techtrends.techidaily.com/be-their-advocate/"><u>Be Their Advocate</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/expert-advice-incorfluttering-web-pages-into-ig-stories-and-posts-for-2024/"><u>Expert Advice Incorfluttering Web Pages Into IG Stories & Posts for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-old-messages-from-your-honor-play-7t-by-fonelab-android-recover-messages/"><u>How to recover old messages from your Honor Play 7T</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-eagle-eye-recorder-insights-software/"><u>In 2024, Eagle Eye Recorder Insights Software</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-navigating-the-financial-landscape-for-podcasters/"><u>In 2024, Navigating the Financial Landscape for Podcasters</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-vivo-y100-5g-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Vivo Y100 5G Phone Pattern Lock</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/unpacking-the-sequencing-of-a-20mb-file/"><u>Unpacking the Sequencing of a 20MB File</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Discord for Music Lovers  Adding Spotify Support\""
-date: 2024-08-10T04:00:07.151Z
-updated: 2024-08-11T04:00:07.151Z
+date: 2024-10-14T18:39:43.962Z
+updated: 2024-10-18T18:03:35.168Z
 tags:
   - ai video
   - ai discord
@@ -19,9 +19,6 @@ thumbnail: https://thmb.techidaily.com/8131b30173d2b241efc12bf25f704d9229322eedc
 
 # How to Connect Spotify to Discord
 
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -40,14 +37,8 @@ So, if you’re wondering how to connect Spotify to Discord, here’s your answe
 * [Part 2: Connect Spotify To Discord With Bot](#part2)
 * [Part 3: Connect Spotify To Discord Mobile App](#part3)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## Part 1: How to Link Spotify To Discord on Windows PC/Mac Directly
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Linking Spotify to Discord on windows PC/Mac is relatively easy. Just follow the steps below:
@@ -57,18 +48,12 @@ Linking Spotify to Discord on windows PC/Mac is relatively easy. Just follow the
 3. Within the User Settings, you’ll see a Connections section atop the left-sidebar; click it. All accounts that are connected to the discord account are visible here
 4. Now, click the Spotify icon below the Connect Your Accounts option. A new window will appear in the browser; you can sign in to the Spotify account using your username and password or your Facebook account. Once you log in, connect Spotify to Discord
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![Supported Connection on Discord](https://images.wondershare.com/filmora/article-images/discord-connections.jpg)
 
 As you allow your Spotify account to connect to Discord, the connections tab will show Spotify and Discord are connected.
 
 It will also display a badge on your Discord profile, which shows your Spotify username (if you like, you can also turn this off via the connections menu).
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ![Connect  Spotify to  Discord and set as status](https://images.wondershare.com/filmora/article-images/set-spotify-as-status-on-discord.jpg)
 
 By default, whenever you’ll play some music on Spotify using the same PC/Mac you are signed in to your Discord account, the status will suddenly change into “listening to Spotify.”
@@ -87,6 +72,13 @@ Once installed, it will add additional Spotify functions to the Discord server, 
 
 ![Add Groovy bot to Discord Server](https://images.wondershare.com/filmora/article-images/add-groovy-music-bot-to-music.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** There are several Spotify bots out there for Discord; however, Groovy is one of [the best discord music bots](https://tools.techidaily.com/wondershare/filmora/download/) available.
 
 Here’s how you can connect Spotify to Discord with a bot:
@@ -96,12 +88,26 @@ Here’s how you can connect Spotify to Discord with a bot:
 
 ![Add Groovy bot to Discord Server](https://images.wondershare.com/filmora/article-images/add-groovy-music-bot-to-music-select-server.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Click Authorize to grant the Groovy the Administrator permission on the selected server and pass through the “I am human” box
 
 ![Add Groovy bot to Discord Server and Authorize](https://images.wondershare.com/filmora/article-images/authorize-groovy-music-bot-to-discord-server.jpg)
 
 1. The Groovy bot will be instantly installed on the chosen Discord server. Now you can use the bot to play tracks or any other type of music you want by simply typing Play and the song name
 2. If you want to import your complete Spotify tracks into the Discord server, you can do it effortlessly: open your playlist in your Spotify app and click >Share>Copy Playlist Link and then paste copied URL into the chat after -play command.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Connect Spotify To Discord Mobile App
 
@@ -114,6 +120,13 @@ Here’s how you can connect Spotify to Discord on your mobile app:
 1. All your current connections will show here, and in case you have not connected your discord account to other services before, tap the Add button right away, located at the top right-hand corner of your mobile screen. A menu will show up from which you have to choose an account you intend to connect.
 
 ![Add Spotify Connect to Discord on Mobile](https://images.wondershare.com/filmora/article-images/add-spotify-connect-to-discord-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. From the several services that appear, choose Spotify. A new window will appear, asking you to log in to the account and allow authorization to connect.
 2. Similar to your windows PC/Mac, your Spotify username will appear on the profile page. Like on desktop, you can also remove the username from your profile via the Connections menu
@@ -131,9 +144,6 @@ Follow these easy steps to know how to “listen along” with friends on Discor
 
 **Note:** if you’re listening along with friends who have Spotify Free, you will hear no music during advertisements.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ### FAQs About Connecting Spotify to Discord
 
 #### 1\. Why Can’t I See Playing Spotify Music on Discord Mobile?
@@ -150,23 +160,6 @@ Yes, you can disconnect Spotify from Discord. Here’s how:
 2. Click Spotify and then click X at the top-left of the green box;
 3. Click disconnect and the connection between Spotify and Discord is disconnected.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -175,8 +168,6 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
-
 <ins class="adsbygoogle"
       style="display:block"
       data-ad-client="ca-pub-7571918770474297"
@@ -184,5 +175,26 @@ Follow @Richard Bennett
       data-ad-format="auto"
       data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-navigating-to-sonic-treasures-downloading-app-based-audio-content/"><u>[New] Navigating to Sonic Treasures Downloading App-Based Audio Content</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-best-free-mac-apps-for-professional-tiktok-cuts/"><u>[Updated] Best Free Mac Apps for Professional TikTok Cuts</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-demystifying-the-process-a-comprehensive-guide-to-pc-tiktok-streams/"><u>[Updated] Demystifying the Process A Comprehensive Guide to PC TikTok Streams</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-fashion-filming-simplified-for-macos-users-for-2024/"><u>[Updated] Fashion Filming Simplified for MacOS Users for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-quick-load-techniques-to-enhance-tiktok-videography/"><u>[Updated] In 2024, Quick-Load Techniques to Enhance TikTok Videography</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-the-ultimate-guide-to-incorporating-apples-siri-into-tiktok/"><u>[Updated] In 2024, The Ultimate Guide to Incorporating Apple's Siri Into TikTok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-pushing-boundaries-innovative-approaches-to-tiktok-reaction-creation/"><u>[Updated] Pushing Boundaries Innovative Approaches to TikTok Reaction Creation</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-reigning-over-tiktok-secrets-to-viral-success-in-advertising/"><u>[Updated] Reigning Over TikTok Secrets to Viral Success in Advertising</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-screenflow-unleashed-a-comprehensive-macos-review-for-2024/"><u>[Updated] ScreenFlow Unleashed A Comprehensive macOS Review for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-secure-tiktok-videos-gallery-integration-techniques-for-2024/"><u>[Updated] Secure TikTok Videos Gallery Integration Techniques for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-uncover-unique-user-understanding/"><u>[Updated] Uncover Unique User Understanding</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unlock-your-music-best-free-on-web-tiktok-to-mp3-convertors-for-2024/"><u>[Updated] Unlock Your Music Best Free, On-Web TikTok to MP3 Convertors for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-vivo-y27-5g-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Vivo Y27 5G PC | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/action-packed-angling-best-fishing-cameras-ranked-for-2024/"><u>Action-Packed Angling Best Fishing Cameras Ranked for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/highest-quality-noiseless-text-converters/"><u>Highest Quality Noiseless Text Converters</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-xiaomi-redmi-k70-pro-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Xiaomi Redmi K70 Pro to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-understanding-the-advanced-features-in-djis-quadcopter-3/"><u>In 2024, Understanding the Advanced Features in DJI's Quadcopter 3</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-unlock-the-best-live-stream-options-today/"><u>In 2024, Unlock the Best Live Stream Options Today</u></a></li>
+<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Sony Xperia 10 V | Dr.fone</u></a></li>
+</ul></div>
 
