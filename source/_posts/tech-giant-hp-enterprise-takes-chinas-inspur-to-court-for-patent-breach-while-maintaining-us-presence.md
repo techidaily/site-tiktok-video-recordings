@@ -1,7 +1,7 @@
 ---
 title: Tech Giant HP Enterprise Takes China's Inspur to Court for Patent Breach While Maintaining U.S. Presence
-date: 2024-10-13T16:00:42.370Z
-updated: 2024-10-18T16:29:55.876Z
+date: 2024-10-19T01:03:57.292Z
+updated: 2024-10-24T06:54:19.274Z
 tags:
   - desktop
 categories:
@@ -72,25 +72,37 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-innovation-in-display-tech-top-10-of-4k-displays/"><u>[New] In 2024, Innovation in Display Tech #Top 10 of 4K Displays</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-smooth-steps-top-20-chill-out-country-hits-for-grooving-tiktok/"><u>[New] Smooth Steps Top 20 Chill-Out Country Hits for Grooving (TikTok)</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-instagram-influencers-list-25-top-influencers-you-should-know/"><u>[Updated] Instagram Influencers List 25 Top Influencers You Should Know</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-unveiling-zdsofts-video-magic-for-2024/"><u>[Updated] Unveiling ZDSoft's Video Magic for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-enhancing-iphone-x-security-mending-facial-detection-glitches/"><u>2024 Approved Enhancing iPhone X Security Mending Facial Detection Glitches</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/enhancing-communication-snap-camera-in-microsoft-teams/"><u>Enhancing Communication Snap Camera in Microsoft Teams</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/novice-to-pro-mastering-the-art-of-youtube-shorts-for-2024/"><u>From Novice to Pro Mastering the Art of YouTube Shorts for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Samsung Galaxy S23 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-vivo-x-fold-2-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Vivo X Fold 2 | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-step-into-the-world-of-aplus-tiktok-videos-with-designed-video-templates/"><u>In 2024, Step Into the World of A+ TikTok Videos with Designed Video Templates</u></a></li>
-<li><a href="https://network-issues.techidaily.com/tailoring-pc-specifications-for-software-compatibility/"><u>Tailoring PC Specifications for Software Compatibility</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-recover-deleted-pictures-on-poco-m6-5g-without-backup-by-fonelab-android-recover-pictures/"><u>The way to recover deleted pictures on Poco M6 5G without backup.</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/unison-choirs-the-duet-experience-on-tiktok/"><u>Unison Choirs The Duet Experience on TikTok</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-expert-tips-to-download-and-save-instagram-media-from-your-computer-for-2024/"><u>[New] Expert Tips to Download and Save Instagram Media From Your Computer for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-ultimate-instagram-filter-playbook-success/"><u>[New] The Ultimate Instagram Filter Playbook Success</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-affordable-video-editing-solutions-mac-os-on-tiktok/"><u>[Updated] 2024 Approved Affordable Video Editing Solutions (Mac OS) on TikTok</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-easy-integration-transferring-content-from-pc-to-iphone/"><u>[Updated] 2024 Approved Easy Integration Transferring Content From PC to iPhone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-from-novice-to-viral-video-top-30-anime-inspiration-ideas/"><u>[Updated] 2024 Approved From Novice to Viral Video Top 30 Anime Inspiration Ideas</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-dissecting-shake-control-does-it-truly-enhance-editing-results-for-2024/"><u>[Updated] Dissecting Shake Control Does It Truly Enhance Editing Results for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-from-dull-to-dynamic-an-in-depth-guide-to-hue-mastery/"><u>[Updated] From Dull to Dynamic An In-Depth Guide to Hue Mastery</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-harness-the-power-of-youtube-studio-for-ultimate-edits/"><u>[Updated] Harness the Power of YouTube Studio for Ultimate Edits</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-joined-melodies-our-tiktok-duet-for-2024/"><u>[Updated] Joined Melodies Our TikTok Duet for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-mapping-out-your-ideal-tiktok-conclusion/"><u>2024 Approved Mapping Out Your Ideal TikTok Conclusion</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-securing-virtual-triumphs-mastering-screen-captures-in-pc-games/"><u>2024 Approved Securing Virtual Triumphs - Mastering Screen Captures in PC Games</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-soundscapes-of-apple-in-the-realm-of-vids/"><u>2024 Approved Soundscapes of Apple in the Realm of Vids</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-synchronized-singing-in-a-single-take/"><u>2024 Approved Synchronized Singing in a Single Take</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/essential-tips-for-mac-based-tiktok-video-edits-for-2024/"><u>Essential Tips for Mac-Based TikTok Video Edits for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/get-into-a-friends-live-showcase-effortlessly/"><u>Get Into a Friend's Live Showcase Effortlessly</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/guide-to-flawless-transition-of-phone-cookies-from-device-to-social-media/"><u>Guide to Flawless Transition of Phone' Cookies From Device to Social Media</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/mastering-the-art-of-tiktok-closing-scenes-for-2024/"><u>Mastering the Art of TikTok Closing Scenes for 2024</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-2024-approved-instant-volume-amplification-solutions-for-windows-users-discover-the-top-10/"><u>New 2024 Approved Instant Volume Amplification Solutions for Windows Users - Discover the Top 10</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/oneplus-11-5g-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>OnePlus 11 5G Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

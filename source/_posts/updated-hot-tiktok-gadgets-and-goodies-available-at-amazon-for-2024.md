@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Hot TikTok Gadgets & Goodies Available at Amazon for 2024"
-date: 2024-10-12T19:14:08.077Z
-updated: 2024-10-18T18:07:07.984Z
+date: 2024-10-20T20:57:12.665Z
+updated: 2024-10-23T17:23:17.553Z
 tags:
   - ai video
   - ai tiktok
@@ -30,22 +30,15 @@ TikTok is more than just sophisticated dance trends and the Kardashians committi
 With over 40 color and pattern options, you're sure to discover a pair of these best-selling leggings that motivates you to complete your exercise. So many celebrities have worn these leggings in front of their TikTok fans!
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
-  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## [The Pink Stuff:](https://www.amazon.com/Pink-Stuff-Miracle-Purpose-Cleaner/dp/B00DU5SRIY)
 
 You'll discover a lot of home hacks on TikTok, such as the Pink Stuff Miracle Cleaning Paste, in addition to hilarious movies and fashion hauls. This will not disappoint you if you need to clean your kitchen, bathroom, or any other area in your home. Dip a sponge into a tiny bit of the miraculous paste, apply some elbow grease, and have a sparkling clean house smelling like fresh berries.
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## [Parlovable Cross-Band Slippers:](https://www.amazon.com/Clothing-Shoes-Jewelry-PARLOVABLE/s?rh=n%3A7141123011%2Cp%5F4%3APARLOVABLE)
 
@@ -55,27 +48,27 @@ These wildly popular slippers are like a cloud for your feet. They had over 15,0
 
 We can all agree that an adaptable product has a place in our closets (and hearts). Bandanas and silk scarves, in particular, can be worn as strapless shirts, purse embellishments, hair ties, and more, which is why this $9 scarf has TikTok users flaunting their finest looks.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## [Pavoi 14-Karat-Gold Chunky Hoops:](https://www.amazon.com/PAVOI-Colored-Lightweight-Chunky-Earrings/dp/B07MRKB8GV)
 
 A pair of massive gold hoop earrings should be part of everyone's jewelry collection, and TikTok-ers have made it even simpler with this under $20 set from Amazon. These Pavoi hoop earrings are a fantastic imitation of Hailey Bieber's, Jennifer Lopez's, and other celebrities' favorite styles.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## [Pleated Skater Tennis Skirt:](https://www.amazon.com/Hoerev-Pleated-Skater-Tennis-School/dp/B0731FQXTD)
 
 Tennis attire was the summer 2018 trend, but it's making a return, as seen by this tennis skirt. The versatile skirt goes with anything from a crop top to a button-down cardigan to a bomber jacket, among other things, which is why TikTok users can't get enough of it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## [The Drop Women's Melanie Mini Bag:](https://www.amazon.com/Drop-Womens-Melanie-Baguette-Bag/dp/B09PM6L71K)
 
@@ -85,38 +78,31 @@ We're big fans of baguette bags (you've undoubtedly seen them in a lot of our ta
 
 Hyram Yabro, aka Skincare by Hyram, a TikTok beauty influencer, single-handedly sold out CeraVe's Hydrating Facial Cleanser. As we previously reported, the brand's sales increased so dramatically in the prior year that CNN Business covered it. While ceramides and hyaluronic acid replenish and moisturize the skin's barrier, the mild cleanser eliminates debris and makeup.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## [To Fake Collar Detachable Blouse:](https://www.amazon.com/Detachable-Collar/s?k=Detachable+Collar)
 
 Do you like a layered look? Just in time for autumn, TikTok users have the ideal solution: It's simple to put on a sweatshirt or sweater and go about your day with this false collar. It allows you to seem as though you're wearing a blouse beneath without having to worry about your sleeves bunching.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## [Velvet Scrunchies With Zipper Pockets (6-Pack):](https://www.amazon.com/Velvet-Scrunchies-Hair-Ties-Women/dp/B082FHHW7X)
 
 We like '90s fashion as much as you do, and TikTok users can't get enough of the Amazon treasures they can use to recreate looks. Exhibit A: these Amazon-exclusive velvet scrunchies with a surprise within.
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## [Windshield Sun Shade:](https://www.amazon.com/Retractable-Windshield-Protector-Universal-Sunshade/dp/B08938WC5Z/?tag=entertainingfinds1-20)
 
 Get this retractable windshield Sunshade for yourself. The sunshades' exterior layer is constructed of a highly reflecting, anti-ultraviolet material that protects the environment. As a consequence of the sun's rays being reflected, the temperature inside the automobile drops. The substantial insulation provided by these shades helps to delay the aging of interior components, allowing them to remain in top condition for longer. Furthermore, these windshields are exceptionally simple to use and can be placed and removed in less than a minute without the need for any additional equipment. They may also be readily stored since they are small and fold into an almost undetectable line. It also secures itself in place, reducing the risk of it sliding off.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## [Revlon Oil-Absorbing Volcanic Face Roller:](https://www.amazon.com/REVLON-309970075583-Revlon-Oil-Absorbing-Roller/dp/B082KZ8ZGM)
 
@@ -125,6 +111,13 @@ Do you have extra-oily skin? Revlon's Oil-Absorbing Volcanic Roller demonstratio
 ## [Big Hair Claw Clips:](https://www.amazon.com/TikTok-Trending-Jumbo-Clips-coral/dp/B091G1FKZC)
 
 This year, claw clips have probably taken over your Instagram page more times than you can count. People everywhere (but particularly on TikTok) are eager to pull their hair back while they're on the road, and the '90s fashion is back in full force. We love the bright colors of this pair of huge clips, which are perfect for medium to long hair.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## [Acupressure Mat and Pillow:](https://www.amazon.com/Acupressure-Spike-Body-stress-relief/dp/B0039PH51K)
 
@@ -150,6 +143,13 @@ Having your newly combed hair get stuck in your lipstick or mascara is one of th
 
 With this portable humidifier, you can relieve any pain caused by dry air. This device not only looks adorable and can be displayed anyplace, but it also helps with dry sinuses, congested noses, and cracked lips.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## [Mini Portable Charger:](https://www.amazon.com/iWALK-Portable-Charger-3350mAh-Compatible/dp/B08B7ZF52G/?tag=entertainingfinds1-20)
 
 For people who are always on the road, the iWalk Mini portable charger for iPhone is a high-quality product. It comes with a built-in lightning port that you can use to charge your iPhone. This gadget is the size of a small lipstick and is meant to be ultra-compact. These chargers feature a 3350mAh capacity, making them large enough to completely charge one device while simultaneously charging another to 50%. It also has a pass-through capability, which means you can charge your phone while using it!
@@ -157,6 +157,13 @@ For people who are always on the road, the iWalk Mini portable charger for iPhon
 ## [Lip Brush:](https://www.amazon.com/beyda-Portable-Cigarette-Waterproof-Non-Sticky/dp/B09DVYGR1P)
 
 When your lips are parched and flaky, use this exfoliating lip brush to get the job done quickly. TikTok users have shown how to use them with only water or with a separate lip scrub, which is how they're supposed to be used.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## [Model Vintage Strapless Open-Back Bustier:](https://www.amazon.com/Modegal-Vintage-Strapless-Bustier-Bodyshaper/dp/B08JLYGCFR)
 
@@ -192,13 +199,6 @@ The Logrotate battery-powered Moon Lamp will brighten your day! It's one of the 
 
 ![Tiktok](https://images.wondershare.com/filmora/article-images/2022/03/tiktok-amazon-finds-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 What would we do if we didn't have Amazon's must-have TikTok with the greatest deals? For starters, we'd be more productive, anyone who has spent time mindlessly browsing TikTok can attest to its long-lasting appeal. Among the dance challenges and voice dubs, there are also useful tips and product recommendations. Amazon offers a lot of wonderful stuff to purchase, but the prominent online store has just ramped it up. These aforementioned **Amazon must haves TikToks** with the introduction of TikTok, Amazon's amazing items are just getting better. We've enlisted these **Amazon finds on TikTok** with daily product updates, consisting of practical Amazon things and fun, creative devices, with a few humorous pieces of stuff thrown in! We've given you a sneak peek inside our Amazon cart if you're searching for some of the top stuff.
@@ -214,24 +214,24 @@ TikTok is more than just sophisticated dance trends and the Kardashians committi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-art-of-differentiating-real-vs-fake-facebook-likes/"><u>[New] 2024 Approved The Art of Differentiating Real vs Fake Facebook Likes</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-elevate-your-tiktok-content-with-the-ultimate-toolkit/"><u>[New] Elevate Your TikTok Content with the Ultimate Toolkit</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-saturating-screen-with-high-definition-tweets/"><u>[New] Saturating Screen with High-Definition Tweets</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-navigating-the-legal-landscape-check-tiktok-video-compliance/"><u>[Updated] 2024 Approved Navigating the Legal Landscape Check TikTok Video Compliance</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-top-anime-elements-that-make-for-tiktok-success/"><u>[Updated] 2024 Approved Top Anime Elements That Make For TikTok Success</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-eliminating-exposure-how-to-conceal-private-video-sections/"><u>[Updated] Eliminating Exposure How to Conceal Private Video Sections</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-expert-insights-efficiently-attaching-subtitles-to-mp4s-for-2024/"><u>[Updated] Expert Insights Efficiently Attaching Subtitles to MP4s for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-android-technique-accessing-and-saving-twitter-videos/"><u>[Updated] In 2024, Android Technique Accessing and Saving Twitter Videos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-the-essential-steps-for-clearance-prior-to-tiktok-uploads-for-2024/"><u>[Updated] The Essential Steps for Clearance Prior to TikTok Uploads for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-streamline-your-tiktok-experience-4-desktop-broadcast-strategies/"><u>2024 Approved Streamline Your TikTok Experience 4 Desktop Broadcast Strategies</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/boost-creativity-on-tiktok-top-10-free-edits-for-mac-users/"><u>Boost Creativity on TikTok - Top 10 Free Edits for Mac Users</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/determining-a-bespoke-keyword-for-your-tiktok-feed-for-2024/"><u>Determining a Bespoke Keyword for Your TikTok Feed for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/effortless-gameplay-recordings-for-your-xbox-console/"><u>Effortless Gameplay Recordings for Your Xbox Console</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/in-2024-mac-video-editing-made-easy-download-splice/"><u>In 2024, Mac Video Editing Made Easy Download Splice</u></a></li>
-<li><a href="https://driver-error.techidaily.com/my-laptops-built-in-wifibluetooth-is-not-responding-on-windows/"><u>My Laptop’s Built-In Wifi/Bluetooth Is Not Responding on Windows.</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/one-click-wonder-seamless-editing-of-multisnap-videos/"><u>One-Click Wonder Seamless Editing of Multisnap Videos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/the-top-5-must-know-for-macos-tiktok-users/"><u>The Top 5 Must-Know for macOS TikTok Users</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/top-12-prominent-poco-c55-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Poco C55 Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://media-tips.techidaily.com/ultimate-list-of-7-leading-convertors-turning-m4a-files-into-mp3-for-all-platforms/"><u>Ultimate List of 7 Leading Convertors Turning M4A Files Into MP3 for All Platforms</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-mastering-tiktok-crafting-video-content-with-background-melodies/"><u>[New] 2024 Approved Mastering TikTok Crafting Video Content with Background Melodies</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-accelerating-video-playback-on-the-popular-tiktok-app-for-2024/"><u>[New] Accelerating Video Playback on the Popular TikTok App for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-anonymous-legacy-non-protected-creative-pieces/"><u>[New] Anonymous Legacy Non-Protected Creative Pieces</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-click-and-groove-an-insiders-guide-to-making-tiktok-dance-videos-for-mac/"><u>[New] Click and Groove An Insider's Guide to Making TikTok Dance Videos for Mac</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-immediate-fix-for-freezing-or-crashed-tiktok-app-on-androidiphone/"><u>[New] In 2024, Immediate Fix for Freezing or Crashed TikTok App on Android/iPhone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-streamlined-mac-tiktok-editing-tools-all-free/"><u>[New] In 2024, Streamlined Mac TikTok Editing Tools (All Free)</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-seamless-and-permanent-tiktok-bio-linking-methods/"><u>[New] Seamless & Permanent TikTok Bio Linking Methods</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-focus-on-the-frame-advanced-cropping-tips/"><u>[Updated] Focus on the Frame Advanced Cropping Tips</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-the-ultimate-list-of-popular-booktok-picks-for-your-reading-spree/"><u>[Updated] In 2024, The Ultimate List of Popular BookTok Picks for Your Reading Spree</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-bringing-anime-characters-to-life-jujutsu-kaisen-for-tiktok/"><u>2024 Approved Bringing Anime Characters to Life Jujutsu Kaisen for TikTok</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unleash-your-audio-potential-pazeras-free-tool-review/"><u>2024 Approved Unleash Your Audio Potential Pazera's Free Tool Review</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/chromatic-charisma-mastering-colorful-filters-on-snapchat/"><u>Chromatic Charisma Mastering Colorful Filters on Snapchat</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-switching-mac-screenshot-types-easily/"><u>In 2024, Switching Mac Screenshot Types Easily</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/mozilla-thunderbird-52-release-enhancements-and-improvements-overviewed/"><u>Mozilla Thunderbird 52 Release - Enhancements and Improvements Overviewed</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/redefining-creativity-the-most-popular-anime-concepts-on-tiktok/"><u>Redefining Creativity The Most Popular Anime Concepts on TikTok</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/squared-up-strategies-boosting-video-popularity-on-the-platform/"><u>Squared Up Strategies Boosting Video Popularity on the Platform</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/stand-out-in-hiring-processes-write-captivating-applications/"><u>Stand Out in Hiring Processes: Write Captivating Applications</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-steps-for-resolving-msvcrtdll-missing-error-messages/"><u>Troubleshooting Steps for Resolving 'msvcrt.dll Missing' Error Messages</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-tecno-phantom-v-flip-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Tecno Phantom V Flip? Here Is the Answer | Dr.fone</u></a></li>
 </ul></div>
 
