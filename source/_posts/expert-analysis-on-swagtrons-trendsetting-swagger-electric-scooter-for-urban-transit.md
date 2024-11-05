@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis on Swagtron's Trendsetting Swagger Electric Scooter for Urban Transit
-date: 2024-10-25T04:28:01.697Z
-updated: 2024-10-30T01:50:58.928Z
+date: 2024-11-01T23:37:37.779Z
+updated: 2024-11-04T20:29:51.563Z
 categories:
   - BestProducts
 description: This Article Describes Expert Analysis on Swagtron's Trendsetting Swagger Electric Scooter for Urban Transit
@@ -38,23 +38,9 @@ Lifewire / Benjamin Zeman
 
 4.7
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Linksys WRT3200ACM Tri-Stream Gigabit Wi-Fi Router
 
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/kijZwQ0wg7f3H2i3JR3-uGRi0kg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_HeroSquare-e40aba90df584fa4ad4a1053eeb538e6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Benjamin Zeman
 
@@ -80,6 +66,19 @@ Lifewire / Benjamin Zeman
 
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/xTJh9nKc58L-dK_nTJKAOHW7WCY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_04-d6fd78091be2489c83483672ac57af2e-7c960043bf5f4a259a43c30db125f0f9.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Benjamin Zeman
 
 ## **Design: A nostalgic look**
@@ -89,6 +88,13 @@ Lifewire / Benjamin Zeman
  The front panel has a series of LED status indicators, while the I/O and buttons are located around back. The Linksys WRT3200ACM covers all the connectivity bases for us and we appreciate the simplistic front panel LED design.
 
  We’re divided about the Linksys WRT3200ACM’s aesthetic. On the one hand it’s a pleasant reminder of the past; on the other, it doesn’t blend well into our home decor. In fact, it looks super vintage and really stands out against all our modern tech and furniture. Linksys has released a similar router called the Linksys WRT32X that is geared towards gaming, has basically the same specs, and is all black. From what we can tell, the difference is in the stock software alone, so it may be a better option for blending in. Overall, though, we love the Linksys WRT3200ACM just as much as we loved the WRT54G and WRT1900AC, which is to say a lot.
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Setup Process: Simple or complex, your choice**
 
@@ -116,13 +122,6 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
  The Linksys WRT3200ACM also has four wired gigabit ethernet ports to directly connect devices like your[gaming console](https://www.lifewire.com/best-gaming-consoles-4154610) or[smart TV](https://www.lifewire.com/best-smart-tvs-4135681) . The[USB 3.0](https://www.lifewire.com/what-is-usb-3-0-2626038) and USB 2.0/eSata ports allow you to connect external storage devices and share things like your video collection across your network. The Linksys WRT3200ACM definitely covered all the connectivity bases that we needed.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Network Performance: Strong 5.4GHz but weak 2.4GHz**
 
  We tested throughput network performance on a Comcast Business plan, utilizing the 5ft/30ft technique, for both 2.4Ghz and 5GHz bands. The Linksys WRT3200ACM performed very well on the 5GHz band and we consistently got an average of 565Mbps at 5ft but a dip to 235Mbps at 30ft. The 2.4GHz band didn’t perform quite as well. We got about 75Mbps at 5ft and only 57Mbps at 20ft.
@@ -134,13 +133,6 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/wVmSkbisZVIprvanAm1UGl20r0s=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_02-b14c9e4005d248688b03f08126d3f210.jpg)
 
  Lifewire / Benjamin Zeman
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Software: Stock is great, open source is better**
 
@@ -155,6 +147,13 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  Flashing Linux based alternatives like[OpenWrt](https://openwrt.org/) or[DD-WRT](https://dd-wrt.com/) is simple, and because the router is made with them in mind, firmware will be more stable than[other routers](https://www.lifewire.com/best-wireless-routers-4038590) . Currently DD-WRT looks like it is a little behind OpenWrt when it comes to additional features not included in the stock firmware. Both projects are actively working on updates and Linksys does encourage you to go with third-party firmwares, but warns that installing third-party firmware is done at your own risk and will void your warranty.
 
  If you’re new to open source router firmware, we encourage you to do your research first. Open source firmware is really for users who are familiar with building and debugging their own software. It requires more manual maintenance and you’ll need to keep up with any new releases yourself. There are a lot of other less expensive Linksys routers available if you want to test the waters before jumping in with the WRT3200ACM.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price: Good if you need open source**
 
@@ -176,6 +175,13 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
  The Linksys WRT3200ACM Router is a great buy from a great company that’s been in the market for a long time. Whether you purchase the Linksys WRT3200ACM new or refurbished, it’s a fantastic value. The only suggestion we have is that you make sure it’s what you actually want and need—if you aren’t going to use it for its open source capabilities, you might want to take a look at some other options. If open source is your jam, you’ll love this router.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Similar Products We've Reviewed
 
 * [Asus RT-AC88U Gaming Router](https://www.lifewire.com/asus-rt-ac88u-gaming-router-review-4589583)
@@ -183,10 +189,16 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 * [Eero Pro Mesh Wi-Fi System](https://www.lifewire.com/eero-pro-mesh-wi-fi-system-review-4797008)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -226,22 +238,20 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-enhance-mobile-viewing-fb-videos-on-android/"><u>[New] 2024 Approved Enhance Mobile Viewing FB Videos on Android</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-how-to-use-gopro-hero5-black-tips-for-shooting-great-photos-and-videos/"><u>[New] 2024 Approved How to Use GoPro Hero5 Black Tips for Shooting Great Photos and Videos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-legal-and-ethical-methods-boosting-your-tiktok-profile/"><u>[New] 2024 Approved Legal and Ethical Methods Boosting Your TikTok Profile</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-reign-at-the-top-the-best-tiktok-typography-for-maximum-engagement/"><u>[New] 2024 Approved Reign at the Top The Best TikTok Typography for Maximum Engagement</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-a-bite-into-tiktoks-most-engaging-dishes/"><u>[New] In 2024, A Bite Into TikTok's Most Engaging Dishes</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-final-steps-for-irreversible-tiktok-un-signup/"><u>[New] In 2024, Final Steps for Irreversible TikTok Un-Signup</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-the-ultimate-guide-to-visiting-friends-lives-on-tiktok/"><u>[New] In 2024, The Ultimate Guide to Visiting Friends' Lives on TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-unleashing-creativity-a-guide-to-music-infused-videos-for-tiktok/"><u>[New] Unleashing Creativity A Guide to Music-Infused Videos for TikTok</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-curate-engaging-content-with-top-igtv-editor-tools/"><u>[Updated] 2024 Approved Curate Engaging Content with Top IGTV Editor Tools</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-dodging-the-invisible-block-unshade-your-tiktok-presence/"><u>[Updated] 2024 Approved Dodging the Invisible Block Unshade Your TikTok Presence</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-leap-into-the-tiktok-live-crowd-a-quick-guide/"><u>[Updated] In 2024, Leap Into the TikTok Live Crowd A Quick Guide</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-obscure-watching-methods-5-unique-stories-apps-for-2024/"><u>[Updated] Obscure Watching Methods 5 Unique Stories Apps for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-tecno-camon-20-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Tecno Camon 20.</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-unlocking-mac-recording-capabilities/"><u>In 2024, Unlocking Mac Recording Capabilities</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/new-era-for-conferencing-with-zoom-on-vision-pro-what-to-expect-from-your-next-meeting-tech-news-by-zdnet/"><u>New Era for Conferencing with Zoom on Vision Pro: What to Expect From Your Next Meeting | Tech News by ZDNet</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-on-apple-iphone-xr-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock On Apple iPhone XR You Should Try Out</u></a></li>
-<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-oppo-reno-11-5g-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Oppo Reno 11 5G</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-unlocking-the-art-of-guesting-on-social-tiktok-lives/"><u>[New] 2024 Approved Unlocking the Art of Guesting on Social TikTok Lives</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-secrets-unveiled-attending-friends-tiktok-lives/"><u>[New] In 2024, Secrets Unveiled Attending Friends’ TikTok Lives</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-ps5-storage-revamped-topping-10-external-units-for-2024/"><u>[New] PS5 Storage Revamped Topping 10 External Units for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-the-ultimate-guide-to-becoming-a-tiktok-live-companion/"><u>[Updated] In 2024, The Ultimate Guide to Becoming a TikTok Live Companion</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-culinary-waves-tiktoks-most-shared-meals/"><u>2024 Approved Culinary Waves TikTok's Most Shared Meals</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/create-with-colors-youtube-banner-creation-guide/"><u>Create with Colors YouTube Banner Creation Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/holistic-overview-decoding-google-podcasts-app-features-for-2024/"><u>Holistic Overview Decoding Google Podcasts App Features for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-on-oppo-a58-4g-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock on Oppo A58 4G Devices</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-xiaomi-redmi-a2-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Xiaomi Redmi A2 Phone Pattern Lock</u></a></li>
+<li><a href="https://win11.techidaily.com/perfect-alignment-on-your-monitor-overcoming-overscan/"><u>Perfect Alignment on Your Monitor: Overcoming Overscan</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/pulse-pounding-perfection-create-compelling-tiktok-videos-with-templates-for-2024/"><u>Pulse-Pounding Perfection Create Compelling TikTok Videos with Templates for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211423545-9783964462909-tanulj-meg-imadkozni/"><u>Tanulj meg imádkozni | Free Book</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-xiaomi-redmi-note-12-pro-4g-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Xiaomi Redmi Note 12 Pro 4G Location | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/top-5-must-know-aspects-of-using-tiktok-macos/"><u>Top 5 Must-Know Aspects of Using TikTok (macOS)</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-iphones-for-gamers-finding-the-ultimate-mobile-gaming-device/"><u>Top iPhones for Gamers: Finding the Ultimate Mobile Gaming Device</u></a></li>
 </ul></div>
 

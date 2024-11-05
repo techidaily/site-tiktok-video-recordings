@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Journey to Viral TikTok  Filmora Edition of Reaction Mastery\""
-date: 2024-10-24T18:05:33.711Z
-updated: 2024-10-30T05:23:13.987Z
+date: 2024-11-03T22:59:39.239Z
+updated: 2024-11-05T01:16:08.933Z
 tags:
   - ai video
   - ai tiktok
@@ -52,13 +52,6 @@ Start TikTok, play the video you want to react on, tap the **Share** icon from t
 
 ![ Make reaction video in tiktok](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Apply Filters
 
 Tap the **Filters** icon from the top-right corner, tap to pick a filter from those available at the bottom, and tap anywhere on the screen to accept the one you selected and to get back to the previous window.
@@ -66,10 +59,10 @@ Tap the **Filters** icon from the top-right corner, tap to pick a filter from th
 ![Add Filters to TikTok Reaction Video](https://images.wondershare.com/filmora/article-images/apply-filters-tiktok-reaction-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Manage Audio
@@ -77,6 +70,13 @@ Tap the **Filters** icon from the top-right corner, tap to pick a filter from th
 Tap the **Mixer** icon from the upper-right corner of the screen, drag the **My Voice** and **Soundtrack Volume** sliders to manage your voice recording and the internal audio respectively, and tap **Done** to save the changes once you’re through with the modifications. Back on the previous window, tap **Next** from the bottom-right corner.
 
 ![ Add music to Tiktok Reaction video](https://images.wondershare.com/filmora/article-images/manage-audio-in-reaction-video-tiktok.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Publish the Video
 
@@ -97,16 +97,10 @@ You can learn how to make **TikTok reaction videos**  using Wondershare Filmora 
 **Note:**  Before proceeding, make sure that you have already copied the source (and the reaction) video(s) from your smartphone to your computer.
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Create New Project and Set Preferences
@@ -118,10 +112,10 @@ Click **Split Screen** from the standard toolbar at the top, hover mouse to the 
 ![Filmora9 portrait mode split screen presets](https://images.wondershare.com/filmora/article-images/portrait-mode-split-screen-presets.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Import and Add Video(s) Preview/Timeline
@@ -130,18 +124,18 @@ Click the **Media** button from the standard toolbar, click anywhere inside the 
 
 Next, click and drag each of the imported videos to their corresponding screen sections in the **Preview** window in the upper-right area. Notice how the files are automatically added to the Timeline at the bottom.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Add Elements and Titles
 
 Click **Elements** from the standard toolbar, hover mouse to the element you want to add to the reaction, click the **\+**  icon that appears at the center of the thumbnail, and reposition the element in the Timeline to match the duration with that of the reaction you are creating.
 
 ![Filmora9 make reaction video with split screen presets and elements](https://images.wondershare.com/filmora/article-images/make-reaction-video-tiktok-with-element-titles.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Export the Reaction
 
@@ -162,10 +156,10 @@ A **TikTok reaction** enables you to make the source videos more fun and enterta
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -183,18 +177,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-dive-into-digital-assets-filmmoras-route-to-profit-on-tiktok/"><u>[New] Dive Into Digital Assets Filmmora's Route to Profit on TikTok</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-innovative-camera-insights-the-best-of-2024-unpacked/"><u>[New] Innovative Camera Insights – The Best of 2024 Unpacked</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-dive-right-in-the-art-of-entering-a-tiktok-stream/"><u>[Updated] In 2024, Dive Right In The Art of Entering a TikTok Stream</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-laughs-galore-a-curated-collection-of-funny-tiktok-content/"><u>[Updated] In 2024, Laughs Galore A Curated Collection of Funny TikTok Content</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-flash-forward-quick-youtube-playlists-distribution/"><u>2024 Approved Flash Forward Quick Youtube Playlists Distribution</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/discovering-the-latest-in-hardware-with-tom-your-trusted-source/"><u>Discovering the Latest in Hardware with Tom - Your Trusted Source</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-tecno-spark-20-proplus-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Tecno Spark 20 Pro+</u></a></li>
-<li><a href="https://techtrends.techidaily.com/expert-tips-on-integrating-various-fortnite-accounts-efficiently/"><u>Expert Tips on Integrating Various Fortnite Accounts Efficiently</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/get-the-latest-logitech-brio-webcam-drivers-for-windows-11-and-earlier-versions-8-7/"><u>Get the Latest Logitech Brio Webcam Drivers for Windows 11 and Earlier Versions (8, 7)</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-does-chatgpt-enhance-or-hinder-the-creative-writing-process-a-comprehhemal-review/"><u>How Does ChatGPT Enhance or Hinder the Creative Writing Process? A Comprehhemal Review</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Tecno Spark 20 Pro | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/the-choreographers-guide-crafting-captivating-tiktok-dances-for-mac-users-for-2024/"><u>The Choreographer's Guide Crafting Captivating TikTok Dances for Mac Users for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/unlocking-apple-iphone-6s-lock-screen-3-foolproof-methods-that-actually-work-drfone-by-drfone-ios/"><u>Unlocking Apple iPhone 6s Lock Screen 3 Foolproof Methods that Actually Work | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-avoiding-pitfalls-tiktok-video-copyright-verification-guide-for-2024/"><u>[New] Avoiding Pitfalls TikTok Video Copyright Verification Guide for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-creating-popular-jujutsu-kaisen-tiktok-content/"><u>[New] Creating Popular Jujutsu Kaisen TikTok Content</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-engineering-a-touching-tiktok-conclusion/"><u>[New] In 2024, Engineering a Touching TikTok Conclusion</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-reimagining-anime-narratives-in-trending-tiktok-creations/"><u>[New] Reimagining Anime Narratives in Trending TikTok Creations</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-ultimate-10-filter-combos-making-tiktoks-pop-up/"><u>[New] Ultimate 10 Filter Combos Making TikToks Pop Up</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-beyond-the-basics-embedding-platforms-reviewed/"><u>[Updated] 2024 Approved Beyond the Basics Embedding Platforms Reviewed</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-jujutsu-kaisen-tiktok-a-step-by-step-guide/"><u>[Updated] 2024 Approved Jujutsu Kaisen TikTok A Step-by-Step Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-drafting-an-emotional-tiktok-conclusion/"><u>[Updated] Drafting an Emotional TikTok Conclusion</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/behind-the-scenes-how-to-create-youtube-trailers-in-filmora-for-2024/"><u>Behind the Scenes How-To Create YouTube Trailers in Filmora for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-xiaomi-13t-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Xiaomi 13T? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-the-most-useful-tips-for-pokemon-go-ultra-league-on-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Most Useful Tips for Pokemon Go Ultra League On Vivo T2x 5G | Dr.fone</u></a></li>
+<li><a href="https://win-hot.techidaily.com/maximizing-productivity-how-using-various-os-boosts-my-work-efficiency-insights-from-a-tech-enthusiast/"><u>Maximizing Productivity: How Using Various OS Boosts My Work Efficiency - Insights From a Tech Enthusiast</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-rotate-your-videos-for-free-top-online-video-flip-tools/"><u>New Rotate Your Videos for Free Top Online Video Flip Tools</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/quick-enrollment-tips-using-apps-without-a-mobile-number/"><u>Quick Enrollment Tips: Using Apps without a Mobile Number</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-art-of-engaging-crafting-compelling-reddit-content-for-2024/"><u>The Art of Engaging Crafting Compelling Reddit Content for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unlocking-your-custom-tiktok-identifier-key-for-2024/"><u>Unlocking Your Custom TikTok Identifier Key for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/your-2023-guide-best-applications-for-downloading-lite-facebook-videos/"><u>Your 2023 Guide Best Applications for Downloading Lite Facebook Videos</u></a></li>
 </ul></div>
 
