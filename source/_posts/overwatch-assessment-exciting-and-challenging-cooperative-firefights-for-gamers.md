@@ -1,7 +1,7 @@
 ---
 title: "Overwatch Assessment: Exciting and Challenging Cooperative Firefights for Gamers"
-date: 2024-10-28T23:08:32.428Z
-updated: 2024-11-04T19:17:18.048Z
+date: 2024-11-14T07:03:52.018Z
+updated: 2024-11-15T06:11:23.594Z
 categories:
   - BestProducts
 description: "This Article Describes Overwatch Assessment: Exciting and Challenging Cooperative Firefights for Gamers"
@@ -43,10 +43,10 @@ Lifewire / Nick Jaynes
 ![Anker PowerDrive 2](https://www.lifewire.com/thmb/kUpys0K04ePH0SuEfAENz--MXSk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/2LW4053582_Hero-2f8cd7af2da04ce48dce54d7f045bf01.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Nick Jaynes
@@ -70,6 +70,13 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Design: All-plastic, but sturdy and subtle**
 
  The Anker PowerDrive 2 might not be the sharpest or most cutting-edge looking in-car USB charger, but what it lacks in visual pizazz, it more than makes up for in sturdiness.
@@ -82,19 +89,6 @@ Lifewire / Nick Jaynes
 
  Lifewire / Nick Jaynes
 
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Performance: Fast charging for demanding devices**
 
  The best part of the Anker PowerDrive 2 is its charging. It has the ability to charge iPads simultaneously without getting overheated thanks to its PowerIQ and VoltageBoost technology. Each USB port can output a maximum 5V/2.4A, for a total of 24W. That’s in line with other car[chargers](https://www.lifewire.com/best-wireless-phone-chargers-4138571) we tested, but the PowerIQ technology can help identify device and deliver the fastest possible charge. This also gives you some overvoltage protection to make sure something like a smartwatch doesn’t fry when you plug it in.
@@ -105,18 +99,18 @@ Lifewire / Nick Jaynes
 
  One thing to note is that the PowerDrive 2 includes a micro USB cable, in case you don’t want to carry your device’s cable everywhere with you. That’s a nice touch we didn’t get with other chargers we tested.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Price: Middle of the pack**
 
  The list price of $14.99 is positioned in the mid-range of the USB charger market, which ranges from just a few dollars to upwards of $50 for some fancier chargers. However, Anker PowerDrive 2 can be had for a discounted price on some websites. Considering the fact that the Anker PowerDrive 2 includes both the fast-charger and a 3-foot micro USB cable, it is well priced for the marketplace.
 
  Lifewire / Nick Jaynes
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: A handful of rivals**
 
@@ -133,10 +127,10 @@ Lifewire / Nick Jaynes
  The price is fair, the charging is fast, and the design is unobtrusive. It’s hard to ask for much more.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -165,15 +159,22 @@ Lifewire / Nick Jaynes
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/reaking-boundaries-coordinated-video-watch-across-channels/"><u>[New] Breaking Boundaries Coordinated Video Watch Across Channels</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-optimal-vr-headset-choice-embracing-the-freedom-of-mobile-or-the-tethered-experience-in-2024/"><u>[New] Optimal VR Headset Choice Embracing the Freedom of Mobile Or The Tethered Experience, In 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-compreeved-guide-converting-webp-to-quality-jpg-format-for-2024/"><u>[Updated] Compreeved Guide Converting WebP to Quality JPG Format for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-end-screen-elegance-free-guides-to-upgrade-your-videos/"><u>[Updated] In 2024, End-Screen Elegance - Free Guides to Upgrade Your Videos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-standing-out-with-personalized-tiktok-pfps-for-2024/"><u>[Updated] Standing Out with Personalized TikTok PFPs for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-decoding-and-mastering-the-true-significance-of-pfp-in-tiktok-world/"><u>2024 Approved Decoding and Mastering The True Significance of PFP in TikTok World</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-making-a-trendy-jujutsu-kaisen-tiktok-video/"><u>2024 Approved Making a Trendy Jujutsu Kaisen TikTok Video</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/ace-your-workouts-with-our-ranking-of-exceptional-running-watches/"><u>Ace Your Workouts with Our Ranking of Exceptional Running Watches</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-jesters-playground-newest-tiktok-comedians/"><u>In 2024, Jester's Playground Newest TikTok Comedians</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-car-locator-apps-for-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Car Locator Apps for Samsung Galaxy A15 4G | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-wave-off-your-insta-footprint-complete-guide-to-permanent-delete-for-2024/"><u>[New] Wave Off Your Insta Footprint Complete Guide to Permanent Delete for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-how-to-enhance-your-tiktok-presence-from-any-device/"><u>[Updated] In 2024, How to Enhance Your TikTok Presence From Any Device</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-stream-like-a-pro-setting-up-your-dslr-on-personal-computers/"><u>[Updated] In 2024, Stream Like a Pro Setting Up Your DSLR on Personal Computers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-top-10-tunes-turned-into-wit-wonders/"><u>[Updated] In 2024, Top 10 Tunes Turned Into Wit Wonders</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unlock-creative-expression-adding-descriptive-texts-to-your-tiktok-videos/"><u>[Updated] Unlock Creative Expression Adding Descriptive Texts to Your TikTok Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-secured-paths-to-popularity-boosts-on-tiktok/"><u>2024 Approved Secured Paths to Popularity Boosts on TikTok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-pathway-to-professional-pc-livestreams-with-tiktok/"><u>2024 Approved The Pathway to Professional PC Livestreams with TikTok</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-oppo-a2-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/exploring-methods-for-rapid-tiktok-editing/"><u>Exploring Methods for Rapid TikTok Editing</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/food-for-the-followers-top-tiktok-cuisine-craze/"><u>Food for the Followers Top TikTok Cuisine Craze</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Vivo Y100 | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-activate-and-use-life360-ghost-mode-on-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Activate and Use Life360 Ghost Mode On Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/insider-tips-and-tricks-eliminating-performance-lags-on-naraka-bladestorm-platform/"><u>Insider Tips and Tricks: Eliminating Performance Lags on Naraka Bladestorm Platform</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/leveraging-camera-roll-for-nostalgic-snaps-via-snapchat/"><u>Leveraging Camera Roll for Nostalgic Snaps via Snapchat</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723015943876-quick-fixes-for-a-non-responsive-fortnite-microphone-or-speakers-get-back-on-voice-chat-now/"><u>Quick Fixes for a Non-Responsive Fortnite Microphone or Speakers - Get Back on Voice Chat Now</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/the-silence-shift-a-comprehensive-look-at-how-to-strip-sound-from-digital-videos-on-the-web-for-2024/"><u>The Silence Shift A Comprehensive Look at How to Strip Sound From Digital Videos on the Web for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/validate-video-rights-a-guide-to-pre-uploading-on-tiktok/"><u>Validate Video Rights A Guide to Pre-Uploading on TikTok</u></a></li>
 </ul></div>
 
