@@ -1,7 +1,7 @@
 ---
 title: "HPE El Capitan Blade: Harnessing the Power of AMD's Newest Instinct MI300A Card for a World Record Speed Supercomputer by Year's End"
-date: 2024-11-11T04:59:57.045Z
-updated: 2024-11-14T17:08:34.403Z
+date: 2024-11-21T17:11:35.896Z
+updated: 2024-11-24T17:16:57.351Z
 tags:
   - desktop
 categories:
@@ -54,6 +54,10 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
  That said, if Ayaneo's successful[Indiegogo campaign](https://www.indiegogo.com/projects/ayaneo-retro-mini-pc-creator-of-mini-pc-2-0-era#/) proved anything, it's that users are willing to pay for a fun retro design despite potential trade-offs —[nostalgia is always a great way](https://www.tomshardware.com/peripherals/mechanical-keyboards/grab-this-cool-retro-console-inspired-keyboard-for-just-dollar83) to get people to buy something.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -77,26 +81,19 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://win-blog.techidaily.com/solved-how-to-fix-minecraft-drivers-outdated-message/"><u>[SOLVED] How to Fix Minecraft Drivers Outdated Message</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-avoiding-content-id-alerts-strategies-on-youtube/"><u>[Updated] Avoiding Content ID Alerts Strategies on YouTube</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-embrace-the-future-of-tv-engage-with-fb-live-via-roku/"><u>[Updated] In 2024, Embrace the Future of TV Engage with FB Live via Roku</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/30-powerful-bots-for-a-thriving-discord-hub/"><u>30 Powerful Bots for a Thriving Discord Hub</u></a></li>
-<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-tecno-pop-8-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Tecno Pop 8 | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/boosting-customer-engagement-with-targeted-tiktok-campaigns/"><u>Boosting Customer Engagement with Targeted TikTok Campaigns</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/budget-friendly-philips-hf3520-alarm-clock-evaluation-value-meets-functionality/"><u>Budget-Friendly Philips HF3520 Alarm Clock Evaluation: Value Meets Functionality</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/elevating-your-presence-on-tiktok-essential-7-must-haves/"><u>Elevating Your Presence on TikTok Essential 7 Must-Haves</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-runtime-error-424-object-required-error-in-excel-2007-by-stellar-guide/"><u>How to fix runtime error 424 object required error in Excel 2007</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-google-frp-lock-from-infinix-note-30-vip-devices-by-drfone-android/"><u>In 2024, How to Bypass Google FRP Lock from Infinix Note 30 VIP Devices</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-ignite-interest-top-20-creative-and-viral-tiktok-caption-strategies/"><u>In 2024, Ignite Interest Top 20 Creative and Viral TikTok Caption Strategies</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-reel-in-riches-a-guide-to-earning-on-youtube-shorts/"><u>In 2024, Reel In Riches A Guide to Earning on YouTube Shorts</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/mastering-complete-tiktok-deletion-process-for-2024/"><u>Mastering Complete TikTok Deletion Process for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/mastering-visibility-after-a-tiktok-blackout/"><u>Mastering Visibility After a TikTok Blackout</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-nikon-1-j5-4k-camera-review/"><u>[New] 2024 Approved Nikon 1 J5 4K Camera Review</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-rise-from-oblivion-mastery-of-tiktok-shadowban-evasion/"><u>[New] 2024 Approved Rise From Oblivion Mastery of TikTok Shadowban Evasion</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-crafting-captivating-tiktoks-mastering-the-use-of-pre-designed-templates-for-2024/"><u>[New] Crafting Captivating TikToks Mastering the Use of Pre-Designed Templates for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-how-to-boost-engagement-the-science-of-effective-video-captions-on-tiktok-for-2024/"><u>[New] How to Boost Engagement The Science of Effective Video Captions on TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-elevate-your-video-storytelling-on-tiktok-with-5-key-caption-techniques-for-2024/"><u>[Updated] Elevate Your Video Storytelling on TikTok With 5 Key Caption Techniques for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-best-value-online-image-editors-leading-15-at-zero-cost/"><u>[Updated] In 2024, Best Value Online Image Editors - Leading 15 at Zero Cost</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-lost-footage-on-tiktok-repeat-video-history/"><u>[Updated] Lost Footage on TikTok Repeat Video History</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-play-7t-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Honor Play 7T Phone without Any Data Loss</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-from-spectator-to-participant-joining-live-tiktok-events/"><u>In 2024, From Spectator to Participant Joining Live TikTok Events</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/instagram-and-soundtracks-demystifying-legalities-for-2024/"><u>Instagram & Soundtracks Demystifying Legalities for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/next-level-graphic-cards-for-4k-titles-for-2024/"><u>Next-Level Graphic Cards for 4K Titles for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-guide-to-pubg-voice-customization-for-2024/"><u>The Ultimate Guide to PUBG Voice Customization for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-the-microsoft-sculpt-keyboard-unbeatable-features-meet-great-value/"><u>The Ultimate Review of the Microsoft Sculpt Keyboard: Unbeatable Features Meet Great Value</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Achieving Instagrammable Proportion  The Self-Clone Method on TikTok for 2024\""
-date: 2024-11-09T08:18:26.311Z
-updated: 2024-11-15T03:43:01.342Z
+date: 2024-11-18T16:22:21.619Z
+updated: 2024-11-24T16:35:03.481Z
 tags:
   - ai video
   - ai tiktok
@@ -31,6 +31,10 @@ Multiplying yourself in a video is a cool way of making sure that your video is 
 
 ![Clone Yourself on TikTok](https://images.wondershare.com/filmora/article-images/clone-yourself-on-tiktok.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Selecting the Song for your Clone Video
 
 Before you start shooting the video you first need to select the song on [TikTok](https://itunes.apple.com/US/app/id835599320?mt=8)you're going to use in the video. Once you've found the perfect track simply record it and save it as a video to your camera roll. You can then import the video clip that contains the song into the [Video Star](http://videostarapp.com/) app.
@@ -40,10 +44,7 @@ Here are [10 Popular TikTok Songs](https://tools.techidaily.com/wondershare/film
 ![Select TikTok Song](https://images.wondershare.com/filmora/article-images/top-tiktok-songs.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Using the Video Star App to Clone Yourself
@@ -71,10 +72,7 @@ Alternatively, you can use the Erase option to remove the unwanted parts of each
 The Add Effect menu will pop up on the screen so you can add different effects to your first video clip, and then repeat the entire process for the back clip. Once you've edited the second clip tap on the Create button to complete the process of making a multilayer clip. Tap Done to save the clip to your camera roll, and upload it to TikTok.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -86,19 +84,13 @@ You can also use [Wondershare Filmora](https://tools.techidaily.com/wondershare/
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -116,22 +108,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-evasive-action-to-escape-the-shadowban-snare/"><u>[New] Evasive Action to Escape the Shadowban Snare</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-5-most-inspiring-tiktok-stars/"><u>[New] In 2024, 5 Most Inspiring TikTok Stars</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-10-leading-tiktok-creative-editors-for-pcs-for-2024/"><u>[Updated] 10 Leading TikTok Creative Editors for PCs for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-circlesmiths-arsenal-for-2024/"><u>[Updated] Circlesmith's Arsenal for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-taming-audio-volume-peaks-using-fl-studios-mastery/"><u>[Updated] Taming Audio Volume Peaks Using FL Studio's Mastery</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/movavi-orf-png/"><u>以 Movavi 專業力量快速在網路上自由地改變 ORF 成 PNG 格式 - 完美的影像數字化方法</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/expand-your-digital-workspace-the-ultimate-how-to-on-attaching-3-displays-to-one-pc/"><u>Expand Your Digital Workspace: The Ultimate How-To on Attaching 3 Displays to One PC</u></a></li>
-<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-huawei-frp-by-drfone-android/"><u>Full Guide to Bypass Huawei FRP</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-honor-100-pro-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Honor 100 Pro? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-resolve-oppo-a18-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Oppo A18 Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-easiest-guide-how-to-clone-samsung-galaxy-a34-5g-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Easiest Guide How to Clone Samsung Galaxy A34 5G Phone? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/snapchat-boomerangs-demystified-your-comprehensive-guide/"><u>Snapchat Boomerangs Demystified Your Comprehensive Guide</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/the-social-media-evolution-growing-your-business-on-tiktok-for-2024/"><u>The Social Media Evolution Growing Your Business on TikTok for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/the-ultimate-path-to-monetizing-tiktok-content-creation-for-2024/"><u>The Ultimate Path to Monetizing TikTok Content Creation for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/top-10-tiktok-secrets-to-social-success/"><u>Top 10 TikTok Secrets to Social Success</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/unlock-more-views-with-these-tiktok-text-tools-of-2023-for-2024/"><u>Unlock More Views with These TikTok Text Tools of 2023 for 2024</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-imovie-photo-slideshow-with-music-imovie-tutorial-for-2024/"><u>Updated How to Make a iMovie Photo Slideshow with Music? IMovie Tutorial for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-best-slow-motion-cameras/"><u>[New] Best Slow-Motion Cameras</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-mastering-game-capture-windows-11-edition-for-2024/"><u>[New] Mastering Game Capture Windows 11 Edition for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-strategy-for-flawless-selfies-on-tiktok-repeatedly/"><u>[New] The Strategy for Flawless Selfies on TikTok, Repeatedly</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-capture-the-moment-join-the-top-10-trending-tiktok-creations/"><u>[Updated] 2024 Approved Capture the Moment Join the Top 10 Trending TikTok Creations</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-innovating-with-jujutsu-kaisen-characters-on-tiktok/"><u>[Updated] 2024 Approved Innovating with Jujutsu Kaisen Characters on TikTok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-top-15-latest-innovations-in-tiktok-world/"><u>[Updated] In 2024, Top 15 Latest Innovations in TikTok World</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-sci-ed-hacks-top-youtube-experts-to-elevate-learning/"><u>[Updated] Sci-Ed Hacks Top YouTube Experts to Elevate Learning</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-snack-sensation-tiktoks-viral-culinary-adventures/"><u>2024 Approved Snack Sensation TikTok's Viral Culinary Adventures</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/breaking-down-madden-19-impressive-gameplay-but-showing-signs-of-aging/"><u>Breaking Down Madden 19: Impressive Gameplay but Showing Signs of Aging</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/download-the-new-release-update-to-version-30814/"><u>Download the New Release: Update to Version 3.0.8.14</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/from-camera-roll-to-screen-share-photos-fast-and-simple/"><u>From Camera Roll to Screen Share Photos Fast and Simple</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/navigating-google-meet-discussions-tips-and-tricks/"><u>Navigating Google Meet Discussions Tips & Tricks</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/resolved-win-11-printer-hiccup-after-update/"><u>Resolved Win 11 Printer Hiccup After Update</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-nokia-xr21-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Nokia XR21 | Dr.fone</u></a></li>
 </ul></div>
 

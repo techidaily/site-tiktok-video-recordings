@@ -1,7 +1,7 @@
 ---
 title: Mastering PC Building Basics at Tom's Hardware Academy
-date: 2024-11-14T06:12:14.231Z
-updated: 2024-11-15T00:57:11.030Z
+date: 2024-11-21T17:55:49.225Z
+updated: 2024-11-24T16:37:19.099Z
 tags:
   - desktop
 categories:
@@ -41,6 +41,10 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
  We caught a first glimpse of the AtomMan X7 Ti[at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) when it was showcased with other interesting new computers like the Minisforum HX200G, Mini Workstation MS-01, and the[V3 tablet](https://www.tomshardware.com/tablets/minisforum-v3-tablet-arrives-the-worlds-first-amd-ryzen-7-8840u-powered-surface-clone) .
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -64,27 +68,20 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-the-complete-guide-to-implementing-siri-speech-on-tiktok-platforms/"><u>[New] 2024 Approved The Complete Guide to Implementing Siri Speech on TikTok Platforms</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-top-10-effortless-steps-to-viral-tiktok-success/"><u>[New] 2024 Approved Top 10 Effortless Steps to Viral TikTok Success</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-audio-allies-the-new-tiktok-trend-for-2024/"><u>[New] Audio Allies The New TikTok Trend for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-buy-tiktok-fame-responsibly-safe-trusted-providers-for-2024/"><u>[New] Buy TikTok Fame Responsibly - Safe, Trusted Providers for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-crafting-engaging-live-streamed-gaming-experiences/"><u>[Updated] In 2024, Crafting Engaging Live-Streamed Gaming Experiences</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-top-10-mac-gif-tools-to-avoid-losing-quality/"><u>[Updated] In 2024, Top 10 Mac GIF Tools to Avoid Losing Quality</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mirthful-melodies-top-downloads-for-tones/"><u>2024 Approved Mirthful Melodies Top Downloads for Tones</u></a></li>
-<li><a href="https://apple-account.techidaily.com/3-ways-of-how-to-get-someones-apple-id-off-iphone-14-without-password-by-drfone-ios/"><u>3 Ways of How to Get Someones Apple ID Off iPhone 14 without Password</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/breaking-through-on-tiktok-personal-branding-and-differentiation/"><u>Breaking Through on TikTok Personal Branding and Differentiation</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/conduct-a-chat-symphony-with-discord-tts-capabilities/"><u>Conduct a Chat Symphony with Discord TTS Capabilities</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/crop-resize-and-reform-mastering-video-shape-editing/"><u>Crop, Resize, and Reform Mastering Video Shape Editing</u></a></li>
-<li><a href="https://discover-excellent.techidaily.com/guide-complet-restaurer-des-images-sur-de-nouveaux-supports-avec-le-logiciel-aomei-backupper/"><u>Guide Complet : Restaurer Des Images Sur De Nouveaux Supports Avec Le Logiciel AOMEI Backupper.</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/how-to-achieve-impactful-big-head-aesthetics-in-your-tiktoks-3-ways/"><u>How To Achieve Impactful Big Head Aesthetics in Your TikToks (3 Ways)</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/passaggi-fai-da-te-per-eseguire-facilmente-il-backup-completo-del-tuo-computer-windows-10/"><u>Passaggi Fai Da Te per Eseguire Facilmente Il Backup Completo Del Tuo Computer Windows 10</u></a></li>
-<li><a href="https://win-dash.techidaily.com/quick-setup-obtain-and-install-focusrite-scarlett-2i2-drivers-on-your-pc/"><u>Quick Setup: Obtain & Install Focusrite Scarlett 2I2 Drivers on Your PC</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-infusing-life-into-jujutsu-kaisen-with-tiktok-videos/"><u>[New] 2024 Approved Infusing Life Into Jujutsu Kaisen with TikTok Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-tiktok-identity-duplication-making-it-seem-effortless/"><u>[New] 2024 Approved TikTok Identity Duplication Making It Seem Effortless</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-beat-fiends-exploring-the-most-popular-rap-songs-on-tiktok/"><u>[New] Beat Fiends Exploring the Most Popular Rap Songs on TikTok</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-ultimate-guide-to-flawless-sound-engineering-in-audacity/"><u>[New] In 2024, The Ultimate Guide to Flawless Sound Engineering in Audacity</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instamosaic-syncing-videos-across-oses-for-2024/"><u>[New] InstaMosaic Syncing Videos Across OSes for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-top-gif-creators-from-tiktok-to-graphics-for-2024/"><u>[New] Top GIF Creators From TikTok to Graphics for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-explore-tiktoks-curated-collection-books-and-beyond/"><u>[Updated] In 2024, Explore TikTok's Curated Collection Books & Beyond</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-mastering-the-art-of-creating-an-original-tiktok-hashtag/"><u>[Updated] In 2024, Mastering the Art of Creating an Original TikTok Hashtag</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-top-windows-and-mac-best-image-to-animation-converter-for-2024/"><u>[Updated] Top Windows & Mac Best Image-to-Animation Converter for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-grasping-core-principles-in-narrative-designs/"><u>2024 Approved Grasping Core Principles in Narrative Designs</u></a></li>
+<li><a href="https://facebook.techidaily.com/german-authorities-restrict-facebooks-data-gathering-on-whatsapp/"><u>German Authorities Restrict Facebook's Data Gathering on WhatsApp</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-reno-11-5g-phone-without-google-account-by-drfone-android/"><u>How to Unlock Oppo Reno 11 5G Phone without Google Account?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-the-top-5-must-know-for-macos-tiktok-users/"><u>In 2024, The Top 5 Must-Know for macOS TikTok Users</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/ultimate-guide-to-blood-pressure-monitors-choose-wisely-with-zdnets-reviews/"><u>Ultimate Guide to Blood Pressure Monitors : Choose Wisely with ZDNET's Reviews</u></a></li>
+<li><a href="https://solve-help.techidaily.com/1725285273048-winxdvd-digiarty/"><u>WinXDVD 対応 Digiarty ソフトウェア・問い合わせ内訳 - 最新情報をお見せします</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: Tech Giant HP Enterprise Takes China's Inspur to Court for Patent Breach While Maintaining U.S. Presence
-date: 2024-11-09T20:40:25.821Z
-updated: 2024-11-14T23:27:02.309Z
+date: 2024-11-17T16:02:13.635Z
+updated: 2024-11-24T16:16:45.489Z
 tags:
   - desktop
 categories:
@@ -49,6 +49,10 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -72,29 +76,22 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-jujutsu-kaisen-in-action-making-memorable-tiktok-videos/"><u>[New] 2024 Approved Jujutsu Kaisen in Action Making Memorable TikTok Videos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-lightning-fast-method-to-claim-tiktok-treasures/"><u>[New] 2024 Approved Lightning-Fast Method to Claim TikTok Treasures</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-capturing-the-whole-picture-not-just-slices-of-it/"><u>[Updated] In 2024, Capturing the Whole Picture, Not Just Slices of It</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-15-funny-jokes-on-tiktok-for-giggles/"><u>2024 Approved 15 Funny Jokes on TikTok for Giggles</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-elevate-content-appeal-with-these-essential-5-tiktok-caption-techniques/"><u>2024 Approved Elevate Content Appeal with These Essential 5 TikTok Caption Techniques</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-ultimate-guide-to-patching-tiktok-videos/"><u>2024 Approved The Ultimate Guide to Patching TikTok Videos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-top-5-essentials-for-mastering-tiktok-on-macos/"><u>2024 Approved Top 5 Essentials for Mastering TikTok on macOS</u></a></li>
-<li><a href="https://facebook.techidaily.com/convergence-of-realms-defining-the-metaverse-nexus/"><u>Convergence of Realms: Defining the Metaverse Nexus</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-oppo-reno-11-5g-by-fonelab-android-recover-photos/"><u>How to get back lost photos from Oppo Reno 11 5G.</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-infinix-hot-40i-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Infinix Hot 40i Location Settings | Dr.fone</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-oppo-reno-10-proplus-5g-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Oppo Reno 10 Pro+ 5G Devices | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-pc-screen-to-realme-gt-3-phones-drfone-by-drfone-android/"><u>In 2024, How to Mirror PC Screen to Realme GT 3 Phones? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-mastering-tiktok-with-its-top-7-emojis-a-beginners-handbook/"><u>In 2024, Mastering TikTok with Its Top 7 Emojis A Beginner's Handbook</u></a></li>
-<li><a href="https://driver-error.techidaily.com/installing-missing-device-drivers-on-your-pc-running-windows-version-1187-a-step-by-step-guide/"><u>Installing Missing Device Drivers on Your PC Running Windows (Version 11/8/7) – A Step-by-Step Guide</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/leading-edits-the-10-best-video-apps-for-2024/"><u>Leading Edits The 10 Best Video Apps for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/playing-iso-files-with-vlc-a-step-by-step-guide/"><u>Playing ISO Files with VLC: A Step-by-Step Guide</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Vivo Y100i Power 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-10-proven-steps-to-skyrocket-traffic-via-facebook-videos/"><u>[New] 2024 Approved 10 Proven Steps to Skyrocket Traffic via Facebook Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-google-cardboard-versus-samsung-gear-vr-the-showdown/"><u>[New] 2024 Approved Google Cardboard Versus Samsung Gear VR The Showdown</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/astering-youtube-images-your-complete-thumbnail-handbook-for-2024/"><u>[New] Mastering YouTube Images Your Complete Thumbnail Handbook for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-12-proven-ways-to-increase-youtube-views/"><u>[Updated] 2024 Approved 12 Proven Ways to Increase YouTube Views</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-50plus-engaging-phrases-that-will-take-your-tiktok-to-new-heights/"><u>[Updated] 2024 Approved 50+ Engaging Phrases That Will Take Your TikTok to New Heights</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-bridging-mac-and-monetization-imovie-editing-to-youtube-success/"><u>[Updated] 2024 Approved Bridging Mac & Monetization IMovie Editing to YouTube Success</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-uhd-precision-converter-clearer-sharper-visuals/"><u>[Updated] UHD Precision Converter Clearer, Sharper Visuals</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-cooking-trends-to-try-exciting-recipes-from-tiktok/"><u>2024 Approved Cooking Trends to Try Exciting Recipes From TikTok</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-optimize-social-media-visual-clarity-for-iphoneandroid-users/"><u>2024 Approved Optimize Social Media Visual Clarity for iPhone/Android Users</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/earn-big-fast-the-ultimate-guide-to-tiktoks-wealth-generation-8-strategies/"><u>Earn Big, Fast The Ultimate Guide to TikTok's Wealth Generation (8 Strategies)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/from-basic-to-breathtaking-elevate-your-tiktok-videos-today-for-2024/"><u>From Basic to Breathtaking Elevate Your TikTok Videos Today for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-10-most-popular-tiktok-food-trends/"><u>In 2024, 10 Most Popular Tiktok Food Trends</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-stop-screen-blackouts-with-obs-game-recordings/"><u>In 2024, Stop Screen Blackouts with OBS Game Recordings</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/mastering-pc-tiktok-live-streams-a-step-by-step-guide-for-2024/"><u>Mastering PC TikTok Live Streams A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/mastering-tiktok-a-template-based-guide-to-outstanding-video-creation-for-2024/"><u>Mastering TikTok A Template-Based Guide to Outstanding Video Creation for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/step-by-step-guide-to-managing-video-speed-on-snapchat/"><u>Step by Step Guide to Managing Video Speed on Snapchat</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/wie-sie-ein-fehlgeschlagenes-installieren-von-windows-server-2019-erfolgreich-beheben-konnen/"><u>Wie Sie Ein Fehlgeschlagenes Installieren Von Windows Server 2019 Erfolgreich Beheben Können</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

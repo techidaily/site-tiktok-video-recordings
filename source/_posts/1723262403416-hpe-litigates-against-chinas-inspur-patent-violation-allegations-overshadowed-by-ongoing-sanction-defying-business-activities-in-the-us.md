@@ -1,7 +1,7 @@
 ---
 title: "HPE Litigates Against China's Inspur: Patent Violation Allegations Overshadowed by Ongoing Sanction-Defying Business Activities in the U.S."
-date: 2024-11-10T17:33:09.442Z
-updated: 2024-11-15T01:52:57.935Z
+date: 2024-11-20T16:51:51.848Z
+updated: 2024-11-24T16:57:11.884Z
 tags:
   - desktop
 categories:
@@ -31,6 +31,10 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -56,23 +60,14 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-mastering-mac-capturing-screens-with-record-feature/"><u>[New] 2024 Approved Mastering Mac Capturing Screens with Record Feature</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-unleash-creative-potential-best-free-title-crafting-for-yt/"><u>[New] 2024 Approved Unleash Creative Potential Best Free Title Crafting for YT</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-action-camera-showdown-sj-cam-s6-takes-the-spotlight/"><u>[New] In 2024, Action Camera Showdown SJ-CAM S6 Takes the Spotlight</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-spinning-jujutsu-kaisen-stories-on-tiktok/"><u>[New] In 2024, Spinning Jujutsu Kaisen Stories on TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-smooth-vibes-the-ultimate-list-of-serene-country-tracks-to-groove-to-tiktok/"><u>[New] Smooth Vibes The Ultimate List of Serene Country Tracks to Groove To (TikTok)</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-top-strategies-for-dominating-the-tiktok-marketing-arena/"><u>[New] Top Strategies for Dominating the TikTok Marketing Arena</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-carving-a-path-individuality-in-the-face-of-tiktok-influencers/"><u>[Updated] 2024 Approved Carving a Path Individuality in the Face of TikTok Influencers</u></a></li>
-<li><a href="https://driver-download.techidaily.com/amd-ryzen-user-friendly-tutorial-fresh-drivers-enhanced-stability-and-speed/"><u>AMD Ryzen User-Friendly Tutorial: Fresh Drivers, Enhanced Stability & Speed</u></a></li>
-<li><a href="https://win-updates.techidaily.com/guia-paso-a-paso-habilitar-el-modo-de-inicio-seguro-en-portatiles-lenovo/"><u>Guía Paso a Paso: Habilitar El Modo De Inicio Seguro en Portátiles Lenovo</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/guide-to-disable-recommended-podcast-features-in-spotify/"><u>Guide to Disable Recommended Podcast Features in Spotify</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-in-2024-complete-guide-to-transitioning-sound-elements-in-video-content/"><u>New In 2024, Complete Guide to Transitioning Sound Elements in Video Content</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-the-art-of-capturing-content-on-vimeo/"><u>[New] In 2024, The Art of Capturing Content on Vimeo</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-simplify-your-digital-life-5-essential-recording-strategies-web-for-2024/"><u>[New] Simplify Your Digital Life 5 Essential Recording Strategies Web for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-top-5-essentials-for-mac-users-on-the-tiktok-web-for-2024/"><u>[New] Top 5 Essentials for Mac Users on the TikTok Web for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-picturemosaic-maker-blend-videos-and-pics-macos/"><u>[Updated] 2024 Approved PictureMosaic Maker Blend Videos & Pics macOS</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-how-to-blend-in-as-an-audience-member-on-tiktok-for-2024/"><u>[Updated] How to Blend in as an Audience Member on TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-composing-a-catchy-tiktok-epilogue/"><u>In 2024, Composing a Catchy TikTok Epilogue</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-elevate-your-tiktok-videos-speedy-filming-secrets/"><u>In 2024, Elevate Your TikTok Videos Speedy Filming Secrets</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-nokia-c12-pro-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Nokia C12 Pro Android SIM Unlock APK</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/reimagining-text-in-photographyvideo-for-2024/"><u>Reimagining Text in Photography/Video for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "The Freedom of Portability: Power, Networking, & Intel CPU Inside the Miniaturized Minisforum S100 PC"
-date: 2024-11-08T18:05:50.882Z
-updated: 2024-11-14T17:42:12.912Z
+date: 2024-11-19T17:29:32.711Z
+updated: 2024-11-24T16:36:58.289Z
 tags:
   - desktop
 categories:
@@ -49,6 +49,10 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -72,26 +76,21 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-from-flash-photography-to-sustained-videography-your-pixiz-adventure/"><u>[New] From Flash Photography to Sustained Videography Your Pixiz Adventure</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-how-to-make-money-on-tiktok-in-8-ways-cannot-miss/"><u>[New] In 2024, How to Make Money on TikTok in 8 Ways [Cannot Miss]</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-a-new-identity-the-complete-tiktok-username-transformation/"><u>[New] Mastering a New Identity The Complete TikTok Username Transformation</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-restoring-your-tiktok-profile-visibility-for-2024/"><u>[New] Restoring Your TikTok Profile Visibility for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-ultimate-earnings-prediction-top-6-tiktok-tools-for-2024/"><u>[New] Ultimate Earnings Prediction Top 6 TikTok Tools for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-15-must-have-tiktok-mobile-editors-for-2024/"><u>[Updated] 15 Must-Have TikTok Mobile Editors for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-snippet-screenplay-guide/"><u>[Updated] 2024 Approved Snippet Screenplay Guide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1-best-free-4k-video-player-apps-for-pc-and-mac-top-10-options/"><u>1. Best FREE 4K Video Player Apps for PC & MAC: Top 10 Options</u></a></li>
-<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Oppo Find X6 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/samsung-ssdssdhdd/"><u>効率的なSamsung SSD移動：容量が少ないSSDへの大きなHDDの複製手順</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/fehlermeldung-bei-cobian-backup-nicht-in-der-lage-altere-wiederherstellungsdateien-zu-entfernen-anderungen-und-andere-optionen-fur-die-datensicherungskopie.149/"><u>Fehlermeldung Bei Cobian Backup: Nicht in Der Lage, Ältere Wiederherstellungsdateien Zu Entfernen – Änderungen Und Andere Optionen Für Die Datensicherungskopie</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Poco M6 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-navigating-google-meet-discussions-tips-and-tricks/"><u>In 2024, Navigating Google Meet Discussions Tips & Tricks</u></a></li>
-<li><a href="https://win11.techidaily.com/making-your-windows-11-pin-more-secure-and-elongated/"><u>Making Your Windows 11 PIN More Secure & Elongated</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-mastering-tiktok-crafting-video-content-with-background-melodies/"><u>[New] 2024 Approved Mastering TikTok Crafting Video Content with Background Melodies</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-3-innovative-methods-for-large-head-effects-in-tiktok-videos-for-2024/"><u>[New] 3 Innovative Methods for Large Head Effects in TikTok Videos for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-accelerating-video-playback-on-the-popular-tiktok-app-for-2024/"><u>[New] Accelerating Video Playback on the Popular TikTok App for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-click-and-groove-an-insiders-guide-to-making-tiktok-dance-videos-for-mac/"><u>[New] Click and Groove An Insider's Guide to Making TikTok Dance Videos for Mac</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-mastering-market-movements-with-youtube-picks/"><u>[Updated] 2024 Approved Mastering Market Movements with YouTube Picks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-a-complete-guide-to-use-instagram-video-chat/"><u>[Updated] In 2024, A Complete Guide to Use Instagram Video Chat</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-fusion-feats-mixing-genres-in-the-worlds-most-engaging-tiktoks/"><u>[Updated] In 2024, Fusion Feats Mixing Genres in the World's Most Engaging TikToks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-navigating-the-ipadiphone-soundscape-adding-apple-podcasts-for-2024/"><u>[Updated] Navigating the iPad/iPhone Soundscape Adding Apple Podcasts for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-the-complete-nvidia-screenshot-user-manual-for-2024/"><u>[Updated] The Complete NVIDIA Screenshot User Manual for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1-effortless-techniques-for-transposing-mov-files-across-platforms-windows-mac-and-online-solutions/"><u>1. Effortless Techniques for Transposing Mov Files Across Platforms: Windows, Mac, and Online Solutions</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-complete-guide-to-cashing-in-on-tiktok-in-8-steps/"><u>2024 Approved The Complete Guide to Cashing In on TikTok in 8 Steps</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/hp-spectre-x360-compatibility-boosted-find-and-download-the-right-windows-drivers-here/"><u>HP Spectre X360 Compatibility Boosted: Find and Download the Right Windows Drivers Here</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-ultimate-guide-to-cross-platform-movie-capture-for-2024/"><u>The Ultimate Guide to Cross-Platform Movie Capture for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138571109-9781617640001-un-dia-importante/"><u>Un Día... Importante. | Free Book</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unraveling-the-mystery-of-individual-tiktok-tags-for-2024/"><u>Unraveling the Mystery of Individual TikTok Tags for 2024</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
