@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, TikTok's Take  Jujutsu Kaisen Challenges and Laughs\""
-date: 2024-09-08T22:26:26.864Z
-updated: 2024-09-14T20:49:41.318Z
+date: 2024-11-28T11:03:49.484Z
+updated: 2024-12-03T01:08:33.373Z
 tags:
   - ai video
   - ai tiktok
@@ -60,6 +60,11 @@ Once you have both video clips, the next step is editing the video and joining t
 2. Go to file, and click on import media and then click on import media files.![jujutsu1](https://images.wondershare.com/filmora/article-images/jujutsu1.png)
 3. Now select both clips and import them to Filmora X.![jujutsu2](https://images.wondershare.com/filmora/article-images/jujutsu2.png)
 4. Drag and drop your own video and bring it to the first track. Then drag and drop the anime video and place it next to your video in the track.![jujutsu3](https://images.wondershare.com/filmora/article-images/jujutsu3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5. You may need to make some adjustments to both video clips so that the scenes perfectly match each other. The most important step in creating videos matches the sound where a person says, "Anime is trash," and then the action happens.
 6. Play the video to make sure everything is in position. If you feel that it still requires adjusting, then go back to the previous step and make the needed adjustments.
 7. Music is critical to match to make the video looks smooth. Find your music to make them fit perfectly. For example, matching the hard beat with the punch or turning up the volume when the anime shows would be good ideas.
@@ -86,6 +91,10 @@ Follow @Liza Brown
 Have you ever watched Jujutsu Kaisen? It is a Japanese manga series that got a lot of fame recently. A massive fan of anime might recognize the anime series for its intriguing fight sequences. Recently we have seen a huge trend of Jujutsu Kaisen videos on TikTok where she says "Anime is Trash," and suddenly the scene turns into an anime fight scene. Technically, this is the filming term "jump cut." You would likely want to create your own of these videos after watching them.
 
 If you are one of the Jujutsu Kaisen fans and looking to create your TikTok montage, then you just landed on the right page. You can easily make such videos by using a video editor like Filmora X. In this article, we will walk through the steps involved in creating Jujutsu Kaisen TikTok montage videos. Now you can create your own scenes and connect them with Jutusu Kaisen fight scenes. Trust me, this is so much fun while editing it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Step By Step Guide For Creating Jujutsu Kaisen TikTok Videos**
 
@@ -118,12 +127,21 @@ Once you have both video clips, the next step is editing the video and joining t
 2. Go to file, and click on import media and then click on import media files.![jujutsu1](https://images.wondershare.com/filmora/article-images/jujutsu1.png)
 3. Now select both clips and import them to Filmora X.![jujutsu2](https://images.wondershare.com/filmora/article-images/jujutsu2.png)
 4. Drag and drop your own video and bring it to the first track. Then drag and drop the anime video and place it next to your video in the track.![jujutsu3](https://images.wondershare.com/filmora/article-images/jujutsu3.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5. You may need to make some adjustments to both video clips so that the scenes perfectly match each other. The most important step in creating videos matches the sound where a person says, "Anime is trash," and then the action happens.
 6. Play the video to make sure everything is in position. If you feel that it still requires adjusting, then go back to the previous step and make the needed adjustments.
 7. Music is critical to match to make the video looks smooth. Find your music to make them fit perfectly. For example, matching the hard beat with the punch or turning up the volume when the anime shows would be good ideas.
 8. Once everything is perfectly aligned, your video is ready, and now you need to export it.
 9. Click on the export button and select the desired video format from the list, i.e. (MP4, Gif, WMV, FLV, etc.).![jujutsu4](https://images.wondershare.com/filmora/article-images/jujutsu4.png)
 10. Once you have selected the desired format, click on export, and the video will take some time to render. Once rendered, you can now share the video with your friends and wow them. ![jujutsu5](https://images.wondershare.com/filmora/article-images/jujutsu5.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Conclusion: These are some simple steps using which you can create your own Jujutsu Kaisen TikTok Montage. Now it's up to you to create new ideas and make interesting videos. We recommend using the Filmora X video editor because it is easy to use and can do wonders for you. Even if you don't have any prior experience in video editing, you can follow these steps and create amazing videos. It may take some time, but you will get better eventually.
 
@@ -178,16 +196,13 @@ Step1 Open your TikTok app to begin the process. Select the "Plus" icon and choo
 
 ![choose live option](https://images.wondershare.com/filmora/article-images/2022/12/tiktok-live-from-computer-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 Now tap on the "Go Live" option that will open a new window. Now you can see your Stream Key and Server URL. Press the "Copy" option given next to these two options. Afterward, you can share your stream key and server URL with your PC, which will be used later.
 
 ![copy server url and stream key](https://images.wondershare.com/filmora/article-images/2022/12/tiktok-live-from-computer-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Benefits of Going Live on TikTok with Computer
 
@@ -204,6 +219,10 @@ iOS and Samsung devices provide high video quality. However, if you are using lo
 ### 3\. Picture-in-Picture Display
 
 Live streams on mobile phones restrict you from displaying a variety of content simultaneously. Through your PC, you can do live streaming on TikTok while playing your favorite games. You can easily open multiple windows on your PC during live streams. Moreover, you can have a picture-in-picture display to use a webcam while going for a live stream.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: 4 Ways to Go Live on TikTok On PC
 
@@ -224,10 +243,7 @@ Step2 On the "Service" box, choose "Custom" to proceed. Now enter the stream key
 ![adjust the obs stream settings](https://images.wondershare.com/filmora/article-images/2022/12/tiktok-live-from-computer-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Way 2: With Streamlabs
@@ -243,6 +259,10 @@ Step1 Once done with installing Streamlabs on your PC, open its main interface. 
 Step2 On the new menu, choose "Custom Streaming Service" as your Stream Type. Now add the required Stream Key and Server URL on the given boxes. Afterward, hit the "Done" button.
 
 ![customize stream settings](https://images.wondershare.com/filmora/article-images/2022/12/tiktok-live-from-computer-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Way 3: With XSplit Broadcaster
 
@@ -312,19 +332,6 @@ Step2 Now tap on the "Go Live" option that will open a new window. Now you can s
 
 ![copy server url and stream key](https://images.wondershare.com/filmora/article-images/2022/12/tiktok-live-from-computer-2.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Benefits of Going Live on TikTok with Computer
 
 There are various advantages of going live on TikTok with a PC. By doing so, you can ensure a better quality of your live streaming session. To learn more, let's discuss the details.
@@ -337,16 +344,13 @@ Holding a mobile phone for live streams can be hectic and tiring. Moreover, it w
 
 iOS and Samsung devices provide high video quality. However, if you are using low-end smartphones, you won't get high video and audio quality. In such a circumstance, you should use your computer to maintain better quality. By doing so, your audience can listen and view your live streams flawlessly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Picture-in-Picture Display
 
 Live streams on mobile phones restrict you from displaying a variety of content simultaneously. Through your PC, you can do live streaming on TikTok while playing your favorite games. You can easily open multiple windows on your PC during live streams. Moreover, you can have a picture-in-picture display to use a webcam while going for a live stream.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: 4 Ways to Go Live on TikTok On PC
 
@@ -390,22 +394,13 @@ Step1 Launch XSplit Broadcaster on your PC and navigate to the "Broadcast" butto
 
 ![select set up a new output](https://images.wondershare.com/filmora/article-images/2022/12/tiktok-live-from-computer-7.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Now tap on "Custom RTMP," which will redirect you to a new window. Here, you can add your streaming key and server URL to continue. You can also add information, such as name, channel, etc., to this window. Once done, press the "OK" button.
 
 ![edit custom rtmp properties](https://images.wondershare.com/filmora/article-images/2022/12/tiktok-live-from-computer-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Way 4: With TikTok Live Studio Software
 
@@ -454,5 +449,19 @@ Live streaming on TikTok is a new technique to target audiences effortlessly. Th
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-compact-and-cost-effective-mirrorless-4k-cameras-(1000/"><u>[New] 2024 Approved Compact and Cost-Effective Mirrorless 4K Cameras <$1,000</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-detailed-review-for-easy-hdr/"><u>[New] 2024 Approved Detailed Review for Easy HDR</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-avoid-infringement-checking-your-tiktok-content-for-rights-for-2024/"><u>[New] Avoid Infringement Checking Your TikTok Content for Rights for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-superior-methods-transforming-pinterest-visuals-into-audios/"><u>[New] In 2024, Superior Methods Transforming Pinterest Visuals Into Audios</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-xvideostudio-review-a-comprehensive-guide/"><u>[Updated] 2024 Approved XVideoStudio Review A Comprehensive Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-unleash-the-fun-of-jumping-into-tiktok-lives/"><u>[Updated] In 2024, Unleash the Fun of Jumping Into TikTok Lives</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-prime-online-communities-eclipsing-twitterenasity-for-2024/"><u>[Updated] Prime Online Communities Eclipsing Twitter'enasity for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/fixing-bios-routes-in-msi-windows-os/"><u>Fixing BIOS Routes in MSI Windows OS</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/guided-process-importing-snapchats-into-local-gallery/"><u>Guided Process Importing Snapchats Into Local Gallery</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-ensure-lasting-tiktok-videos-proper-saving-on-phones/"><u>In 2024, Ensure Lasting TikTok Videos Proper Saving on Phones</u></a></li>
+<li><a href="https://network-issues.techidaily.com/spartan-written-perfection-pursued/"><u>Spartan' Written: Perfection Pursued</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlocking-creativity-top-10-insider-canva-tricks-for-2024/"><u>Unlocking Creativity Top 10 Insider Canva Tricks for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "HPE El Capitan Blade: Harnessing the Power of AMD's Newest Instinct MI300A Card for a World Record Speed Supercomputer by Year's End"
-date: 2024-11-21T17:11:35.896Z
-updated: 2024-11-24T17:16:57.351Z
+date: 2024-12-02T01:04:26.759Z
+updated: 2024-12-02T19:31:39.730Z
 tags:
   - desktop
 categories:
@@ -55,7 +55,7 @@ __Ayaneo Retro Mini PC AM01 Specification__
  That said, if Ayaneo's successful[Indiegogo campaign](https://www.indiegogo.com/projects/ayaneo-retro-mini-pc-creator-of-mini-pc-2-0-era#/) proved anything, it's that users are willing to pay for a fun retro design despite potential trade-offs —[nostalgia is always a great way](https://www.tomshardware.com/peripherals/mechanical-keyboards/grab-this-cool-retro-console-inspired-keyboard-for-just-dollar83) to get people to buy something.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -81,19 +81,17 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-nikon-1-j5-4k-camera-review/"><u>[New] 2024 Approved Nikon 1 J5 4K Camera Review</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-rise-from-oblivion-mastery-of-tiktok-shadowban-evasion/"><u>[New] 2024 Approved Rise From Oblivion Mastery of TikTok Shadowban Evasion</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-crafting-captivating-tiktoks-mastering-the-use-of-pre-designed-templates-for-2024/"><u>[New] Crafting Captivating TikToks Mastering the Use of Pre-Designed Templates for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-how-to-boost-engagement-the-science-of-effective-video-captions-on-tiktok-for-2024/"><u>[New] How to Boost Engagement The Science of Effective Video Captions on TikTok for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-elevate-your-video-storytelling-on-tiktok-with-5-key-caption-techniques-for-2024/"><u>[Updated] Elevate Your Video Storytelling on TikTok With 5 Key Caption Techniques for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-best-value-online-image-editors-leading-15-at-zero-cost/"><u>[Updated] In 2024, Best Value Online Image Editors - Leading 15 at Zero Cost</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-lost-footage-on-tiktok-repeat-video-history/"><u>[Updated] Lost Footage on TikTok Repeat Video History</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-honor-play-7t-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Honor Play 7T Phone without Any Data Loss</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-from-spectator-to-participant-joining-live-tiktok-events/"><u>In 2024, From Spectator to Participant Joining Live TikTok Events</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-vivo-v29e-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Vivo V29e | Dr.fone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/instagram-and-soundtracks-demystifying-legalities-for-2024/"><u>Instagram & Soundtracks Demystifying Legalities for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/next-level-graphic-cards-for-4k-titles-for-2024/"><u>Next-Level Graphic Cards for 4K Titles for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-ultimate-guide-to-pubg-voice-customization-for-2024/"><u>The Ultimate Guide to PUBG Voice Customization for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-ultimate-review-of-the-microsoft-sculpt-keyboard-unbeatable-features-meet-great-value/"><u>The Ultimate Review of the Microsoft Sculpt Keyboard: Unbeatable Features Meet Great Value</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-building-a-robust-brand-partnership-portfolio-on-youtube/"><u>[New] Building a Robust Brand Partnership Portfolio on YouTube</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-crafting-your-signature-sound-on-tiktok-through-effective-voice-alteration-for-2024/"><u>[New] Crafting Your Signature Sound on TikTok Through Effective Voice Alteration for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-drafting-a-compelling-closing-statement-for-tiktok/"><u>[Updated] 2024 Approved Drafting a Compelling Closing Statement for TikTok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-staying-ahead-with-tiktoks-freshest-sensations/"><u>[Updated] 2024 Approved Staying Ahead with TikTok's Freshest Sensations</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-the-essence-of-insta-bokeh-a-step-by-step-guide/"><u>[Updated] 2024 Approved The Essence of Insta Bokeh - A Step-by-Step Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-exclusive-look-at-top-10-gamers-on-tiktok-for-2024/"><u>[Updated] Exclusive Look at Top 10 Gamers on TikTok for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-from-idea-to-share-the-process-of-adding-gifs-on-snapchat/"><u>[Updated] In 2024, From Idea to Share The Process of Adding Gifs on Snapchat</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/chromecast-vs-roku-showdown-determining-top-streaming-device/"><u>Chromecast vs Roku Showdown: Determining Top Streaming Device</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/effortless-mp4-conversion-for-ipad-optimize-for-seamless-video-streaming/"><u>Effortless MP4 Conversion for iPad - Optimize for Seamless Video Streaming</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/expert-apowersoft-guidance-and-support-services/"><u>Expert Apowersoft Guidance & Support Services</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-imagememe-magic-instant-jokes/"><u>In 2024, ImageMeme Magic Instant Jokes</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-addressing-msi-afterburners-inability-to-recognize-gpu-under-windows-11/"><u>Troubleshooting Guide: Addressing MSI Afterburner's Inability to Recognize GPU Under Windows 11</u></a></li>
 </ul></div>
 

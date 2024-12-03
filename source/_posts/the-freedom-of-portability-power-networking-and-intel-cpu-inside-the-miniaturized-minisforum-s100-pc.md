@@ -1,7 +1,7 @@
 ---
 title: "The Freedom of Portability: Power, Networking, & Intel CPU Inside the Miniaturized Minisforum S100 PC"
-date: 2024-11-19T17:29:32.711Z
-updated: 2024-11-24T16:36:58.289Z
+date: 2024-12-01T18:06:07.835Z
+updated: 2024-12-03T03:21:52.102Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,21 +76,20 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-mastering-tiktok-crafting-video-content-with-background-melodies/"><u>[New] 2024 Approved Mastering TikTok Crafting Video Content with Background Melodies</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-3-innovative-methods-for-large-head-effects-in-tiktok-videos-for-2024/"><u>[New] 3 Innovative Methods for Large Head Effects in TikTok Videos for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-accelerating-video-playback-on-the-popular-tiktok-app-for-2024/"><u>[New] Accelerating Video Playback on the Popular TikTok App for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-click-and-groove-an-insiders-guide-to-making-tiktok-dance-videos-for-mac/"><u>[New] Click and Groove An Insider's Guide to Making TikTok Dance Videos for Mac</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-mastering-market-movements-with-youtube-picks/"><u>[Updated] 2024 Approved Mastering Market Movements with YouTube Picks</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-a-complete-guide-to-use-instagram-video-chat/"><u>[Updated] In 2024, A Complete Guide to Use Instagram Video Chat</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-fusion-feats-mixing-genres-in-the-worlds-most-engaging-tiktoks/"><u>[Updated] In 2024, Fusion Feats Mixing Genres in the World's Most Engaging TikToks</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-navigating-the-ipadiphone-soundscape-adding-apple-podcasts-for-2024/"><u>[Updated] Navigating the iPad/iPhone Soundscape Adding Apple Podcasts for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-the-complete-nvidia-screenshot-user-manual-for-2024/"><u>[Updated] The Complete NVIDIA Screenshot User Manual for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1-effortless-techniques-for-transposing-mov-files-across-platforms-windows-mac-and-online-solutions/"><u>1. Effortless Techniques for Transposing Mov Files Across Platforms: Windows, Mac, and Online Solutions</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-complete-guide-to-cashing-in-on-tiktok-in-8-steps/"><u>2024 Approved The Complete Guide to Cashing In on TikTok in 8 Steps</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/hp-spectre-x360-compatibility-boosted-find-and-download-the-right-windows-drivers-here/"><u>HP Spectre X360 Compatibility Boosted: Find and Download the Right Windows Drivers Here</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Xiaomi 13T | Dr.fone</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/the-ultimate-guide-to-cross-platform-movie-capture-for-2024/"><u>The Ultimate Guide to Cross-Platform Movie Capture for 2024</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/138571109-9781617640001-un-dia-importante/"><u>Un Día... Importante. | Free Book</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/unraveling-the-mystery-of-individual-tiktok-tags-for-2024/"><u>Unraveling the Mystery of Individual TikTok Tags for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-grab-tiktok-videos-online-for-free/"><u>[New] In 2024, Grab TikTok Videos Online for FREE</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-unmissable-experiences-in-digital-playfields/"><u>[New] In 2024, Unmissable Experiences in Digital Playfields</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-unlock-creative-expression-adding-descriptive-texts-to-your-tiktok-videos/"><u>[New] Unlock Creative Expression Adding Descriptive Texts to Your TikTok Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-from-spectator-to-participant-joining-on-tiktok-live-for-2024/"><u>[Updated] From Spectator to Participant Joining on TikTok Live for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-how-to-undo-a-tiktok-refresh-blunder/"><u>[Updated] In 2024, How to Undo a TikTok Refresh Blunder</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/converge-your-viewing-proficiently-using-netflix-pip-mode-for-2024/"><u>Converge Your Viewing Proficiently Using Netflix PIP Mode for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-new-frontiers-with-toms-pc-world-the-ultimate-gadget-insight-hub/"><u>Exploring New Frontiers with Tom's PC World - The Ultimate Gadget Insight Hub</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/how-to-blend-in-as-an-audience-member-on-tiktok/"><u>How to Blend in as an Audience Member on TikTok</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/idevice-data-detective-secure-and-efficient-recovery/"><u>IDevice Data Detective: Secure & Efficient Recovery</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-immersive-editing-unveiling-the-top-15-cine-luts-for-action-cam/"><u>In 2024, Immersive Editing Unveiling the Top 15 Cine LUTs for Action Cam</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-navigating-a-new-digital-landscape-detailed-steps-for-updating-tiktok-handle/"><u>In 2024, Navigating a New Digital Landscape Detailed Steps for Updating TikTok Handle</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Motorola Edge 40 Neo | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/in-depth-fixes-for-modern-warfare-3s-memory-overflow-error-memoryexceeded-code-12707/"><u>In-Depth Fixes for Modern Warfare 3'S Memory Overflow Error - MEMORY_EXCEEDED (Code 12707)</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ate-guide-to-free-and-premium-short-video-clips-for-2024/"><u>Ultimate Guide to Free & Premium Short Video Clips for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/ultimate-top-10-tiktok-editor-tools-for-windows-users/"><u>Ultimate Top 10 TikTok Editor Tools for Windows Users</u></a></li>
 </ul></div>
 

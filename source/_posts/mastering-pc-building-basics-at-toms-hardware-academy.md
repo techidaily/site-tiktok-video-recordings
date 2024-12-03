@@ -1,7 +1,7 @@
 ---
 title: Mastering PC Building Basics at Tom's Hardware Academy
-date: 2024-11-21T17:55:49.225Z
-updated: 2024-11-24T16:37:19.099Z
+date: 2024-11-27T08:26:07.405Z
+updated: 2024-12-02T18:04:25.634Z
 tags:
   - desktop
 categories:
@@ -42,7 +42,7 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
  We caught a first glimpse of the AtomMan X7 Ti[at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) when it was showcased with other interesting new computers like the Minisforum HX200G, Mini Workstation MS-01, and the[V3 tablet](https://www.tomshardware.com/tablets/minisforum-v3-tablet-arrives-the-worlds-first-amd-ryzen-7-8840u-powered-surface-clone) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -68,20 +68,18 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-infusing-life-into-jujutsu-kaisen-with-tiktok-videos/"><u>[New] 2024 Approved Infusing Life Into Jujutsu Kaisen with TikTok Videos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-tiktok-identity-duplication-making-it-seem-effortless/"><u>[New] 2024 Approved TikTok Identity Duplication Making It Seem Effortless</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-beat-fiends-exploring-the-most-popular-rap-songs-on-tiktok/"><u>[New] Beat Fiends Exploring the Most Popular Rap Songs on TikTok</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-the-ultimate-guide-to-flawless-sound-engineering-in-audacity/"><u>[New] In 2024, The Ultimate Guide to Flawless Sound Engineering in Audacity</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-instamosaic-syncing-videos-across-oses-for-2024/"><u>[New] InstaMosaic Syncing Videos Across OSes for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-top-gif-creators-from-tiktok-to-graphics-for-2024/"><u>[New] Top GIF Creators From TikTok to Graphics for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-explore-tiktoks-curated-collection-books-and-beyond/"><u>[Updated] In 2024, Explore TikTok's Curated Collection Books & Beyond</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-mastering-the-art-of-creating-an-original-tiktok-hashtag/"><u>[Updated] In 2024, Mastering the Art of Creating an Original TikTok Hashtag</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-top-windows-and-mac-best-image-to-animation-converter-for-2024/"><u>[Updated] Top Windows & Mac Best Image-to-Animation Converter for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-grasping-core-principles-in-narrative-designs/"><u>2024 Approved Grasping Core Principles in Narrative Designs</u></a></li>
-<li><a href="https://facebook.techidaily.com/german-authorities-restrict-facebooks-data-gathering-on-whatsapp/"><u>German Authorities Restrict Facebook's Data Gathering on WhatsApp</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-reno-11-5g-phone-without-google-account-by-drfone-android/"><u>How to Unlock Oppo Reno 11 5G Phone without Google Account?</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-the-top-5-must-know-for-macos-tiktok-users/"><u>In 2024, The Top 5 Must-Know for macOS TikTok Users</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/ultimate-guide-to-blood-pressure-monitors-choose-wisely-with-zdnets-reviews/"><u>Ultimate Guide to Blood Pressure Monitors : Choose Wisely with ZDNET's Reviews</u></a></li>
-<li><a href="https://solve-help.techidaily.com/1725285273048-winxdvd-digiarty/"><u>WinXDVD 対応 Digiarty ソフトウェア・問い合わせ内訳 - 最新情報をお見せします</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-elevate-your-profile-the-best-30-tiktok-handle-choices/"><u>[New] Elevate Your Profile The Best 30 TikTok Handle Choices</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-anime-soundtracks-setting-the-mood-for-viral-shorts/"><u>[Updated] In 2024, Anime Soundtracks Setting the Mood for Viral Shorts</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-the-latest-alternatives-to-tiktok-that-are-making-waves/"><u>[Updated] The Latest Alternatives to TikTok That Are Making Waves</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-step-by-step-guide-find-your-own-tiktok-stream-key/"><u>2024 Approved [Step-by-Step Guide] Find Your Own TikTok Stream Key</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-generating-a-timeless-tiktok-outro-feature/"><u>2024 Approved Generating a Timeless TikTok Outro Feature</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-poco-x5-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Poco X5 is off? | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/expert-tips-for-bypassing-roblox-stubborn-startup-hang-ups/"><u>Expert Tips for Bypassing Roblox Stubborn Startup Hang-Ups</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/experts-choice-for-ultimate-illumination-top-flashlights-of-2024-analyzed-cnet/"><u>Experts' Choice for Ultimate Illumination: Top Flashlights of 2024 Analyzed | CNET</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-maximizing-impact-with-reddit-essential-tips-revealed/"><u>In 2024, Maximizing Impact with Reddit - Essential Tips Revealed</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-secure-growth-of-your-tiktok-fanbase/"><u>In 2024, Secure Growth of Your TikTok Fanbase</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-philips-hf3505s-impact-on-natural-waking-routines/"><u>In-Depth Review: Philips HF3505's Impact on Natural Waking Routines</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-how-to-apply-video-filters-for-2024/"><u>New How to Apply Video Filters for 2024</u></a></li>
+<li><a href="https://discover-dash.techidaily.com/transfert-hors-carte-migratez-de-votre-ssh-vers-un-disque-ssd-sous-windows-10-et-11-guide-complet/"><u>Transfert Hors-Carte : Migratez De Votre SSH Vers Un Disque SSD Sous Windows 10 Et 11 - Guide Complet</u></a></li>
 </ul></div>
 

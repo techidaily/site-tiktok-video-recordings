@@ -1,7 +1,7 @@
 ---
 title: Tech Giant HP Enterprise Takes China's Inspur to Court for Patent Breach While Maintaining U.S. Presence
-date: 2024-11-17T16:02:13.635Z
-updated: 2024-11-24T16:16:45.489Z
+date: 2024-12-01T01:17:00.532Z
+updated: 2024-12-03T02:26:27.152Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,22 +76,22 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-10-proven-steps-to-skyrocket-traffic-via-facebook-videos/"><u>[New] 2024 Approved 10 Proven Steps to Skyrocket Traffic via Facebook Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-2024-approved-google-cardboard-versus-samsung-gear-vr-the-showdown/"><u>[New] 2024 Approved Google Cardboard Versus Samsung Gear VR The Showdown</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/astering-youtube-images-your-complete-thumbnail-handbook-for-2024/"><u>[New] Mastering YouTube Images Your Complete Thumbnail Handbook for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-12-proven-ways-to-increase-youtube-views/"><u>[Updated] 2024 Approved 12 Proven Ways to Increase YouTube Views</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-50plus-engaging-phrases-that-will-take-your-tiktok-to-new-heights/"><u>[Updated] 2024 Approved 50+ Engaging Phrases That Will Take Your TikTok to New Heights</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-bridging-mac-and-monetization-imovie-editing-to-youtube-success/"><u>[Updated] 2024 Approved Bridging Mac & Monetization IMovie Editing to YouTube Success</u></a></li>
-<li><a href="https://some-tips.techidaily.com/updated-uhd-precision-converter-clearer-sharper-visuals/"><u>[Updated] UHD Precision Converter Clearer, Sharper Visuals</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-cooking-trends-to-try-exciting-recipes-from-tiktok/"><u>2024 Approved Cooking Trends to Try Exciting Recipes From TikTok</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-optimize-social-media-visual-clarity-for-iphoneandroid-users/"><u>2024 Approved Optimize Social Media Visual Clarity for iPhone/Android Users</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/earn-big-fast-the-ultimate-guide-to-tiktoks-wealth-generation-8-strategies/"><u>Earn Big, Fast The Ultimate Guide to TikTok's Wealth Generation (8 Strategies)</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/from-basic-to-breathtaking-elevate-your-tiktok-videos-today-for-2024/"><u>From Basic to Breathtaking Elevate Your TikTok Videos Today for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-10-most-popular-tiktok-food-trends/"><u>In 2024, 10 Most Popular Tiktok Food Trends</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-stop-screen-blackouts-with-obs-game-recordings/"><u>In 2024, Stop Screen Blackouts with OBS Game Recordings</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/mastering-pc-tiktok-live-streams-a-step-by-step-guide-for-2024/"><u>Mastering PC TikTok Live Streams A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/mastering-tiktok-a-template-based-guide-to-outstanding-video-creation-for-2024/"><u>Mastering TikTok A Template-Based Guide to Outstanding Video Creation for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/step-by-step-guide-to-managing-video-speed-on-snapchat/"><u>Step by Step Guide to Managing Video Speed on Snapchat</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/wie-sie-ein-fehlgeschlagenes-installieren-von-windows-server-2019-erfolgreich-beheben-konnen/"><u>Wie Sie Ein Fehlgeschlagenes Installieren Von Windows Server 2019 Erfolgreich Beheben Können</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-constructing-an-inspirational-tiktok-end-screen/"><u>[New] 2024 Approved Constructing An Inspirational TikTok End Screen</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-discover-the-hottest-tiktok-reading-trends/"><u>[New] Discover the Hottest TikTok Reading Trends</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-high-visibility-features-mastering-snapchats-star-for-2024/"><u>[New] High-Visibility Features Mastering Snapchat's Star for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-snap-edit-and-enchant-the-ultimate-guide-to-stellar-tiktok-videos/"><u>[New] In 2024, Snap, Edit & Enchant The Ultimate Guide to Stellar TikTok Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-how-to-make-a-tiktok-outro/"><u>[Updated] How To Make A Tiktok Outro</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-revolutionizing-broadcast-media-with-chroma-key-expertise/"><u>[Updated] In 2024, Revolutionizing Broadcast Media with Chroma Key Expertise</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-hidden-truths-behind-vrs-advantages-and-limitations/"><u>[Updated] Unveiling the Hidden Truths Behind VR's Advantages and Limitations</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-best-10-tiktok-tools-for-professional-video-makers-pc/"><u>2024 Approved Best 10 TikTok Tools for Professional Video Makers (PC)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-enhance-video-quality-on-tiktok-a-guide-to-intriguing-bgs/"><u>2024 Approved Enhance Video Quality on TikTok A Guide to Intriguing BGs</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-booktok-chronicles-top-15-must-read-list/"><u>2024 Approved The #Booktok Chronicles Top 15 Must-Read List</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-xiaomi-redmi-13c-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Xiaomi Redmi 13C</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-realme-11-5g-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Realme 11 5G Location by Number | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-oppo-a56s-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Oppo A56s 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-oppo-reno-8t-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Oppo Reno 8T IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/navigating-the-uncharted-waters-of-the-microsoft-surface-go-a-reasonably-priced-tablet-struggling-to-define-itself/"><u>Navigating the Uncharted Waters of the Microsoft Surface Go: A Reasonably Priced Tablet Struggling to Define Itself</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/step-by-step-drawing-faces-on-snapchat/"><u>Step-by-Step Drawing Faces on Snapchat</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/tips-and-tricks-for-setting-up-your-honor-x50-gt-phone-pattern-lock-by-drfone-android/"><u>Tips and Tricks for Setting Up your Honor X50 GT Phone Pattern Lock</u></a></li>
 </ul></div>
 
