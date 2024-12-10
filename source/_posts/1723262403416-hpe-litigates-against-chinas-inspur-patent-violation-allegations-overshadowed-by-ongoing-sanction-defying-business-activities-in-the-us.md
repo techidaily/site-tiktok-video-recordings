@@ -1,7 +1,7 @@
 ---
 title: "HPE Litigates Against China's Inspur: Patent Violation Allegations Overshadowed by Ongoing Sanction-Defying Business Activities in the U.S."
-date: 2024-11-25T21:43:01.065Z
-updated: 2024-12-03T07:31:10.935Z
+date: 2024-12-08T17:12:31.815Z
+updated: 2024-12-10T03:10:36.052Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,22 +60,18 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-cult-classic-reimaginings-top-20-anime-on-tiktok/"><u>[New] 2024 Approved Cult Classic Reimaginings Top 20 Anime on TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-authenticity-matters-ensuring-your-tiktoks-are-legally-uploaded-for-2024/"><u>[New] Authenticity Matters Ensuring Your TikToks Are Legally Uploaded for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-from-obscurity-to-the-limelight-the-proven-methods-of-changing-your-tiktok-username/"><u>[New] From Obscurity to the Limelight The Proven Methods of Changing Your TikTok Username</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-gopro-vs-drift-ghost-speed-camera-showdown-explained/"><u>[New] GoPro vs Drift Ghost - Speed Camera Showdown Explained</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-streaming-google-meet-a-step-by-step-youtube-tutorial/"><u>[New] Streaming Google Meet A Step-By-Step YouTube Tutorial</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-unleashing-viral-potential-a-curated-list-of-tiktok-usernames/"><u>[Updated] 2024 Approved Unleashing Viral Potential A Curated List of TikTok Usernames</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-mastering-anime-aesthetics-in-viral-tiktoks/"><u>[Updated] Mastering Anime Aesthetics in Viral TikToks</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-navigating-the-launch-of-tiktok-videos-from-pc/"><u>[Updated] Navigating the Launch of TikTok Videos From PC</u></a></li>
-<li><a href="https://win-data.techidaily.com/find-any-lost-document-easily-using-microsofts-new-ai-powered-recall-feature-for-eligible-pcs-zdnet-insights/"><u>Find Any Lost Document Easily Using Microsoft's New AI-Powered Recall Feature for Eligible PCs | ZDNet Insights</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-8-solutions-to-fix-find-my-friends-location-not-available-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>In 2024, 8 Solutions to Fix Find My Friends Location Not Available On Apple iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-anime-based-short-clips-top-20-ideas-on-tiktok/"><u>In 2024, Anime-Based Short Clips Top 20 Ideas on TikTok</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Samsung Galaxy S21 FE 5G (2023)? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-mastering-marks-top-iosandroid-tiktok-watermark-tools/"><u>In 2024, Mastering Marks Top iOS/Android TikTok Watermark Tools</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-maximizing-your-ae-leading-text-plugins-reviewed/"><u>In 2024, Maximizing Your AE Leading Text Plugins Reviewed</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-the-ultimate-guide-to-vlogger-vogue-launching-your-cosmetic-channel/"><u>In 2024, The Ultimate Guide to Vlogger Vogue Launching Your Cosmetic Channel</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/premium-full-hd-1920x1080-landscapes-and-abstracts-professional-desktop-wallpapers-by-yl-computing/"><u>Premium Full HD 1920X1080 Landscapes and Abstracts - Professional Desktop Wallpapers by YL Computing</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/update-your-epson-l3150-printer-driver-on-windows-version-compatibility-with-11-8-and-7/"><u>Update Your Epson L3150 Printer Driver on Windows - Version Compatibility with 11, 8 and 7</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-unleashing-video-magic-on-tiktok-with-pre-made-designs/"><u>[New] 2024 Approved Unleashing Video Magic on TikTok with Pre-Made Designs</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-bring-playlists-down-to-youtube-the-5-best-conversion-resources/"><u>[New] Bring Playlists Down to YouTube The 5 Best Conversion Resources</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-synchronized-soundtracks-the-years-most-recurring-tiktok-songs/"><u>[New] In 2024, Synchronized Soundtracks The Year’s Most Recurring TikTok Songs</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-tickletech-instant-creation-of-laughter-graphics/"><u>[New] In 2024, TickleTech Instant Creation of Laughter Graphics</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-maximize-attendee-visibility-with-google-meet-grids-for-2024/"><u>[New] Maximize Attendee Visibility with Google Meet Grids for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-key-to-social-media-dominance-learning-the-craft-of-self-replication-on-tiktok-for-2024/"><u>[New] The Key to Social Media Dominance Learning the Craft of Self-Replication on TikTok for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-achieve-creative-excellence-on-tiktok-with-easy-border-swapping-strategies/"><u>[Updated] 2024 Approved Achieve Creative Excellence on TikTok with Easy Border Swapping Strategies</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-binge-worthy-20-catchy-tiktok-songs-by-artists/"><u>[Updated] Binge-Worthy 20 Catchy TikTok Songs by Artists</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-blog-thumbnail-proportions-tips/"><u>[Updated] In 2024, Blog Thumbnail Proportions Tips</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-revolutionary-wearable-camera-tech/"><u>[Updated] Revolutionary Wearable Camera Tech</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2023-how-to-check-tiktok-video-copyright-before-uploading-in-2024/"><u>2023 | How to Check Tiktok Video Copyright Before Uploading, In 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-automate-batch-files-with-task-scheduler-on-windows/"><u>How to Automate Batch Files With Task Scheduler on Windows</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/restoring-game-sounds-on-fortnite-the-ultimate-troubleshooting-checklist-for-gamers/"><u>Restoring Game Sounds on Fortnite: The Ultimate Troubleshooting Checklist for Gamers</u></a></li>
 </ul></div>
 

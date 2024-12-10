@@ -1,7 +1,7 @@
 ---
 title: "The Freedom of Portability: Power, Networking, & Intel CPU Inside the Miniaturized Minisforum S100 PC"
-date: 2024-12-01T18:06:07.835Z
-updated: 2024-12-03T03:21:52.102Z
+date: 2024-12-05T06:57:16.436Z
+updated: 2024-12-10T03:46:06.465Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,20 +76,19 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-grab-tiktok-videos-online-for-free/"><u>[New] In 2024, Grab TikTok Videos Online for FREE</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-unmissable-experiences-in-digital-playfields/"><u>[New] In 2024, Unmissable Experiences in Digital Playfields</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-unlock-creative-expression-adding-descriptive-texts-to-your-tiktok-videos/"><u>[New] Unlock Creative Expression Adding Descriptive Texts to Your TikTok Videos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-from-spectator-to-participant-joining-on-tiktok-live-for-2024/"><u>[Updated] From Spectator to Participant Joining on TikTok Live for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-how-to-undo-a-tiktok-refresh-blunder/"><u>[Updated] In 2024, How to Undo a TikTok Refresh Blunder</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/converge-your-viewing-proficiently-using-netflix-pip-mode-for-2024/"><u>Converge Your Viewing Proficiently Using Netflix PIP Mode for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/exploring-new-frontiers-with-toms-pc-world-the-ultimate-gadget-insight-hub/"><u>Exploring New Frontiers with Tom's PC World - The Ultimate Gadget Insight Hub</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/how-to-blend-in-as-an-audience-member-on-tiktok/"><u>How to Blend in as an Audience Member on TikTok</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/idevice-data-detective-secure-and-efficient-recovery/"><u>IDevice Data Detective: Secure & Efficient Recovery</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-immersive-editing-unveiling-the-top-15-cine-luts-for-action-cam/"><u>In 2024, Immersive Editing Unveiling the Top 15 Cine LUTs for Action Cam</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-navigating-a-new-digital-landscape-detailed-steps-for-updating-tiktok-handle/"><u>In 2024, Navigating a New Digital Landscape Detailed Steps for Updating TikTok Handle</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-motorola-edge-40-neo-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Motorola Edge 40 Neo | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/in-depth-fixes-for-modern-warfare-3s-memory-overflow-error-memoryexceeded-code-12707/"><u>In-Depth Fixes for Modern Warfare 3'S Memory Overflow Error - MEMORY_EXCEEDED (Code 12707)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ate-guide-to-free-and-premium-short-video-clips-for-2024/"><u>Ultimate Guide to Free & Premium Short Video Clips for 2024</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/ultimate-top-10-tiktok-editor-tools-for-windows-users/"><u>Ultimate Top 10 TikTok Editor Tools for Windows Users</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-instantly-impress-followers-with-an-updated-tiktok-bio-and-pics/"><u>[New] 2024 Approved Instantly Impress Followers with an Updated TikTok Bio & Pics</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-the-snapchat-savants-handbook-perfecting-every-boomerang/"><u>[New] 2024 Approved The Snapchat Savant's Handbook Perfecting Every Boomerang</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-art-of-perfection-in-tiktok-production-with-designed-video-templates-for-2024/"><u>[New] The Art of Perfection in TikTok Production with Designed Video Templates for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-best-humor-image-processor-for-2024/"><u>[Updated] Best Humor Image Processor for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-nikons-challenge-to-gopro-hero-black-in-video-realm/"><u>[Updated] In 2024, Nikon's Challenge to GoPro HERO Black in Video Realm</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-20plus-ways-to-earn-from-your-facebook-community/"><u>2024 Approved 20+ Ways to Earn From Your Facebook Community</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-silencers-guide-banishing-background-buzz/"><u>2024 Approved The Silencer's Guide Banishing Background Buzz</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-top-20-country-anthems-from-tiktoks-chillest-stations/"><u>2024 Approved Top 20 Country Anthems From TikTok's Chillest Stations</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/die-effiziente-losung-fur-nicht-bootfahige-datentrager-in-windows-11-mach-es-jetzt/"><u>Die Effiziente Lösung Für Nicht Bootfähige Datenträger in Windows 11 – Mach Es Jetzt!</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/essential-techniques-for-making-and-tweaking-multi-snap-chats/"><u>Essential Techniques for Making & Tweaking Multi-Snap Chats</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/expert-review-can-any-competitor-dethrone-the-dominant-amazon-echo-studio-in-the-smart-speaker-arena-zdnet-insights/"><u>Expert Review: Can Any Competitor Dethrone the Dominant Amazon Echo Studio in the Smart Speaker Arena | ZDNet Insights</u></a></li>
+<li><a href="https://games-able.techidaily.com/explore-pokemons-universe-on-your-ios-device-today/"><u>Explore Pokémon's Universe on Your iOS Device Today</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-laugh-ledger-a-compendium-of-current-comedy-sensations/"><u>In 2024, Laugh Ledger A Compendium of Current Comedy Sensations</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-essential-techniques-for-fast-forwarding-in-spotify/"><u>The Essential Techniques for Fast-Forwarding in Spotify</u></a></li>
 </ul></div>
 

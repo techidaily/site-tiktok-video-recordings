@@ -1,7 +1,7 @@
 ---
 title: "Star Wars Fans Rejoice: AceMagic Raises the Stakes with Their New Mini Gaming Computer Shaped Like an X-Wing"
-date: 2024-11-30T23:41:05.097Z
-updated: 2024-12-03T07:28:30.960Z
+date: 2024-12-04T06:14:02.866Z
+updated: 2024-12-10T07:52:57.110Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,24 +62,22 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-next-gen-tiktok-editing-how-to-replace-video-borders-quickly/"><u>[New] 2024 Approved Next-Gen TikTok Editing How to Replace Video Borders Quickly</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-the-freshest-top-15-books-echoing-through-booktoks-halls/"><u>[New] In 2024, The Freshest Top 15 Books Echoing Through BookTok's Halls</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-trending-beats-navigating-the-world-of-viral-tiktok-raps/"><u>[New] In 2024, Trending Beats Navigating the World of Viral TikTok Raps</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-live-participation-guesting-on-tiktoks-for-2024/"><u>[New] Mastering Live Participation Guesting on TikToks for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-navigating-tiktok-lives-as-a-virtual-attendee/"><u>[New] Navigating TikTok Lives as a Virtual Attendee</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-from-page-to-screen-jujutsu-kaisen-on-tiktok/"><u>[Updated] 2024 Approved From Page to Screen Jujutsu Kaisen on TikTok</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-complete-analysis-lg-27-oled-screens-visual-edge/"><u>[Updated] Complete Analysis LG 27 OLED Screen's Visual Edge</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-crafting-stories-excellence-among-8-film-categories/"><u>[Updated] Crafting Stories Excellence Among 8 Film Categories</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-easy-steps-to-dance-and-unwind-with-these-top-20-songs-country-edition-for-2024/"><u>[Updated] Easy Steps to Dance & Unwind with These Top 20 Songs (Country Edition) for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-exemplar-storyboard-creators-circle-for-2024/"><u>[Updated] Exemplar Storyboard Creator's Circle for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-itel-a60-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Itel A60 Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/dialing-up-the-drama-captivating-tiktok-intros-via-mac-for-2024/"><u>Dialing Up the Drama Captivating TikTok Intros via Mac for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/finding-the-right-wordmark-for-your-personalized-tiktok-stream/"><u>Finding the Right Wordmark for Your Personalized TikTok Stream</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/free-online-swf-to-mp4-video-converter-by-movavi-simple-secure-and-fast/"><u>Free Online SWF to MP4 Video Converter by Movavi: Simple, Secure & Fast</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-phones-to-cameras-diy-setup-guide-for-mobile-video-recording/"><u>In 2024, Phones to Cameras DIY Setup Guide for Mobile Video Recording</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/t-mobiles-strategic-move-into-fiber-optics-implications-for-competitors/"><u>T-Mobile's Strategic Move Into Fiber Optics: Implications for Competitors</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/take-a-trip-down-memory-lane-exploring-the-legacy-of-super-mario-bros-on-the-game-and-watch-by-nintendo/"><u>Take a Trip Down Memory Lane: Exploring the Legacy of Super Mario Bros. On the Game & Watch by Nintendo</u></a></li>
-<li><a href="https://android-frp.techidaily.com/the-updated-method-to-bypass-oppo-f25-pro-5g-frp-by-drfone-android/"><u>The Updated Method to Bypass Oppo F25 Pro 5G FRP</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-logitech-c615-a-budget-friendly-webcam-with-impressive-performance/"><u>Unveiling the Logitech C615: A Budget-Friendly Webcam with Impressive Performance</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-essential-steps-for-crafting-stunning-slow-mo-videos-on-tiktok/"><u>[New] In 2024, Essential Steps for Crafting Stunning Slow Mo Videos on TikTok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-evolving-your-tiktok-conclusion-designs/"><u>[New] In 2024, Evolving Your TikTok Conclusion Designs</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-perfecting-your-digital-doppelganger-a-complete-guide-to-cloning-oneself-on-tiktok/"><u>[New] In 2024, Perfecting Your Digital Doppelgänger A Complete Guide to Cloning Oneself on TikTok</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-ultimate-youtube-video-titles-creator-tools/"><u>[New] Ultimate YouTube Video Titles Creator Tools</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-tips-for-speeding-up-your-tiktok-videos/"><u>[Updated] In 2024, Tips for Speeding Up Your TikTok Videos</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-premium-scenery-selections-for-streams/"><u>[Updated] Premium Scenery Selections for Streams</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-standing-out-with-personalized-tiktok-pfps-for-2024/"><u>[Updated] Standing Out with Personalized TikTok PFPs for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-tidy-up-your-pictures-top-10-online-unblur-tools/"><u>[Updated] Tidy Up Your Pictures Top 10 Online Unblur Tools</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-making-a-trendy-jujutsu-kaisen-tiktok-video/"><u>2024 Approved Making a Trendy Jujutsu Kaisen TikTok Video</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-quicktweetgrabber-swiftly-secure-tweets-videos-on-iphone/"><u>2024 Approved QuickTweetGrabber Swiftly Secure Tweets' Videos on iPhone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-spinning-media-a-quick-guide-to-rotating-videos-in-vlc/"><u>2024 Approved Spinning Media A Quick Guide to Rotating Videos in VLC</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/accelerate-lost-snap-content-find/"><u>Accelerate Lost Snap Content Find</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/efficient-techniques-for-mass-conversion-of-amv-video-clips-into-mp3-format-a-comprehensive-guide/"><u>Efficient Techniques for Mass Conversion of AMV Video Clips Into MP3 Format - A Comprehensive Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-15-funny-jokes-on-tiktok-for-giggles/"><u>In 2024, 15 Funny Jokes on TikTok for Giggles</u></a></li>
+<li><a href="https://facebook.techidaily.com/leading-innovators-thoughts-on-ai-an-international-roundtable-discussion/"><u>Leading Innovators' Thoughts on AI: An International Roundtable Discussion</u></a></li>
+<li><a href="https://win-popular.techidaily.com/seamless-file-sharing-between-mac-and-google-drive/"><u>Seamless File Sharing Between Mac and Google Drive</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/step-by-step-installing-ethernet-card-drivers-on-insignia-devices-free-guide/"><u>Step by Step: Installing Ethernet Card Drivers on Insignia Devices – Free Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Expert Analysis on Swagtron's Trendsetting Swagger Electric Scooter for Urban Transit
-date: 2024-11-29T23:56:34.634Z
-updated: 2024-12-02T17:53:29.205Z
+date: 2024-12-09T03:19:29.929Z
+updated: 2024-12-09T19:14:36.259Z
 categories:
   - BestProducts
 description: This Article Describes Expert Analysis on Swagtron's Trendsetting Swagger Electric Scooter for Urban Transit
@@ -13,13 +13,13 @@ thumbnail: https://www.lifewire.com/thmb/tgkMt2ozFD2OZz_tpBcZ3hFZKZY=/400x300/fi
 
 4.7
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Linksys WRT3200ACM Tri-Stream Gigabit Wi-Fi Router
 
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/xOfa88ZepYRUnftpwYx2wCdtio8=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_HeroSquare-e40aba90df584fa4ad4a1053eeb538e6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Benjamin Zeman
 
@@ -42,13 +42,13 @@ Lifewire / Benjamin Zeman
 
 4.7
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Linksys WRT3200ACM Tri-Stream Gigabit Wi-Fi Router
 
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/kijZwQ0wg7f3H2i3JR3-uGRi0kg=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_HeroSquare-e40aba90df584fa4ad4a1053eeb538e6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Benjamin Zeman
 
@@ -76,6 +76,10 @@ Lifewire / Benjamin Zeman
 
 Lifewire / Benjamin Zeman
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: A nostalgic look**
 
  The Linksys WRT3200ACM Router sticks with the familiar black and blue design of its predecessors. At 9.68 x 7.63 x 2.04 inches and 28.16 ounces it’s fairly large, and the four inch antennas add some additional height, though each antenna is adjustable and detachable.
@@ -101,10 +105,14 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 ![Linksys WRTAC3200 Router](https://www.lifewire.com/thmb/FS8mMgztL5cutF2feLNI4jorFig=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/01LW4159787_03-bc6cced22d1c4e12b578da3f8b644d0c.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Benjamin Zeman
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Connectivity: 3200ACM and MU-MIMO capable**
 
@@ -113,10 +121,6 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  Multi-User Multiple Input Multiple Output (MU-MIMO) capability means the router can efficiently handle bandwidth in homes with devices of different speed grades. It’s essentially like each device has its own router because they connect at their fastest speeds and transmit data simultaneously instead of sequentially. That means you can be running multiple devices throughout the house and each can connect at their highest speed.
 
  The Linksys WRT3200ACM also has four wired gigabit ethernet ports to directly connect devices like your[gaming console](https://www.lifewire.com/best-gaming-consoles-4154610) or[smart TV](https://www.lifewire.com/best-smart-tvs-4135681) . The[USB 3.0](https://www.lifewire.com/what-is-usb-3-0-2626038) and USB 2.0/eSata ports allow you to connect external storage devices and share things like your video collection across your network. The Linksys WRT3200ACM definitely covered all the connectivity bases that we needed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Network Performance: Strong 5.4GHz but weak 2.4GHz**
 
@@ -150,10 +154,6 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
  Even if you don’t go with a refurb, the WRT3200ACM is a good buy, though it’s not a necessity if you aren’t looking to utilize it for its open source capabilities—there are other, cheaper options on the market that will serve your needs just as well.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Linksys WRT3200ACM Router vs. Asus RT-AC5300 Router**
 
  Another router that tends to top the list of[open source routers](https://www.lifewire.com/best-wireless-routers-4038590) is the Asus RT-AC5300, a Tri-Band AC5300, MU-MIMO-capable router marketed towards gamers. This expensive router has a very large footprint and two antennas on each of the four sides. Its $400 MSRP is significantly higher than the Linksys WRT3200ACM, and the lowest retail price we’ve seen is around $270\. Even refurbished, it still goes for $250, the same price as the MSRP of the Linksys WRT3200ACM.
@@ -169,7 +169,7 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
  The Linksys WRT3200ACM Router is a great buy from a great company that’s been in the market for a long time. Whether you purchase the Linksys WRT3200ACM new or refurbished, it’s a fantastic value. The only suggestion we have is that you make sure it’s what you actually want and need—if you aren’t going to use it for its open source capabilities, you might want to take a look at some other options. If open source is your jam, you’ll love this router.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Similar Products We've Reviewed
@@ -215,16 +215,17 @@ The Linksys WRT3200ACM performed very well on the 5GHz band.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/treamlining-education-with-youtube-videos-for-2024/"><u>[New] Streamlining Education with YouTube Videos for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-the-ultimate-productivity-playlist-podcast-inspired-tasks-for-2024/"><u>[New] The Ultimate Productivity Playlist Podcast-Inspired Tasks for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-whos-leading-the-charge-in-tiktok-gaming/"><u>[Updated] Who's Leading the Charge in TikTok Gaming?</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/constructing-an-engaging-tiktok-aftermath/"><u>Constructing an Engaging TikTok Aftermath</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/how-to-save-snapchat-videos-with-apps-on-android-and-mac/"><u>How to Save Snapchat Videos with Apps on Android and Mac</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-economic-planning-for-your-upcoming-music-video/"><u>In 2024, Economic Planning for Your Upcoming Music Video</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-sony-xperia-10-v-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Sony Xperia 10 V? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-quotable-moments-50plus-top-tiktok-inspirational-lyrics/"><u>In 2024, Quotable Moments 50+ Top TikTok Inspirational Lyrics</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-transforming-tiktok-to-pop-with-top-gif-tools/"><u>In 2024, Transforming TikTok to Pop with Top GIF Tools</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/transforming-tiktok-viewers-into-your-facebook-likes-for-2024/"><u>Transforming TikTok Viewers Into Your Facebook Likes for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/why-linkedin-games-may-be-more-harmful-than-helpful/"><u>Why LinkedIn Games May Be More Harmful Than Helpful</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-budget-friendly-strategies-to-infuse-text-and-video/"><u>[New] In 2024, Budget-Friendly Strategies to Infuse Text & Video</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-reverse-an-accidental-tiktok-reload-quick-guide/"><u>[New] In 2024, Reverse an Accidental TikTok Reload – Quick Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unveiling-your-own-distinctive-tiktok-stream-key-for-2024/"><u>[Updated] Unveiling Your Own Distinctive TikTok Stream Key for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-composing-an-emotive-tiktok-finale-statement/"><u>2024 Approved Composing An Emotive TikTok Finale Statement</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-conveniently-record-your-favorite-streams-top-5-grabber-apps/"><u>2024 Approved Conveniently Record Your Favorite Streams Top 5 Grabber Apps</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-quick-scrolling-savvy-the-complete-guide-to-skip-videos-on-tiktok/"><u>2024 Approved Quick Scrolling Savvy The Complete Guide to Skip Videos on TikTok</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-poco-f5-5g-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Poco F5 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-samsung-galaxy-a24-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Samsung Galaxy A24 to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/masterful-moments-made-simple-the-snapchat-lens-guide/"><u>Masterful Moments Made Simple The Snapchat Lens Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723175695796-mastering-tech-essentials-at-toms-haven-for-hardware-enthusiasts/"><u>Mastering Tech Essentials at Tom's Haven for Hardware Enthusiasts</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/music-and-motion-imovie-edition-for-2024/"><u>Music & Motion IMovie Edition for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-art-of-youtube-editing-a-compreenasive-guidebook/"><u>The Art of YouTube Editing A Compreenasive Guidebook</u></a></li>
 </ul></div>
 
