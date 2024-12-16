@@ -1,7 +1,7 @@
 ---
 title: Blast Through Galactic Stories with a Twist - A Review of The Outer Worlds' Innovative Gameplay
-date: 2024-11-29T08:56:30.626Z
-updated: 2024-12-02T20:33:24.753Z
+date: 2024-12-11T09:43:09.883Z
+updated: 2024-12-16T11:48:13.291Z
 categories:
   - BestProducts
 description: This Article Describes Blast Through Galactic Stories with a Twist - A Review of The Outer Worlds' Innovative Gameplay
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/YYVBe-nNS0cz8xVTAeBtpJIaeyY=/400x300/fi
 ## LG OLED C9 65" 4K Smart TV
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/Z82osxXGuhEbZyidLLG58VdbbJ0=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_HeroSquare-b4b1522941d44a18b75a586155788477.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -70,6 +74,10 @@ Lifewire / Emily Isaacs
 
  Lifewire / Emily Isaacs
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Design: Smart and sleek**
 
 [OLED TVs](https://www.lifewire.com/oled-tv-basics-1846926) are among the best money can buy, characterized by their ability to produce a wide range of colors alongside deep, rich blacks by toggling individual pixels to emit their own light. On top of this, OLED frames are thinner and lighter than their LED predecessors. It’s a powerful combination that makes for a startlingly realistic picture alongside an expanded range of placement options. In the case of the LG C9, it’s a design that’s as smart as it is sleek thanks to the inclusion of Google Assistant and Alexa.
@@ -81,10 +89,6 @@ Lifewire / Emily Isaacs
  For customers with multiple external devices, such as Blu-ray players or gaming consoles, ports are located along the TV’s left-hand side and directly on its backside. These connection options include 4[HDMI](https://www.lifewire.com/hdmi-facts-high-definition-multimedia-interface-1847337) 2.1 ports, 3[USB](https://www.lifewire.com/universal-serial-bus-usb-2626039) ports, one cable/antenna input, one LAN port, and audio connections. The HDMI 2.1 ports are especially important since consoles began emerging in 2020 that rely on HDMI 2.1 such as the Playstation 5.
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/mxKfDJGuIKYcsSIQoKfzwDbYYmg=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_02-3da87ff8439343f691cf02e9234d1f04.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -113,7 +117,7 @@ Lifewire / Emily Isaacs
  These pictures are further enhanced with LG’s α9 Gen 2 intelligent processor, new to 2019’s model. It excels at drawing out detail and correcting quality discrepancies within the picture, such as banding which creates textures and strips in areas of the screen that would otherwise be smooth. This is particularly important given the large screen size and high resolution. While it’s not as bright as an LED TV since it lacks backlighting, it doesn’t need it as the TV already possesses excellent color, a change here would risk washing out the inky blacks on the screen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Audio: Better than expected**
@@ -121,10 +125,6 @@ Lifewire / Emily Isaacs
  While OLED TVs aren’t generally known for their great sound quality, the LG C9 has a surprisingly good sound system all things considered—but a soundbar would still be recommended. Audio in TV or movies is generally good, but it struggles to regulate loud and soft noises in a scene. Streaming Lizzo’s_Cuz I Love You_ on Spotify produces a surprising depth of sound, but it’s simply not comparable to a more robust system that a soundbar or home theater system would provide.
 
 ![LG OLED C9 65-inch 4K Smart TV](https://www.lifewire.com/thmb/SZUaFESJi6OZubIeLdK1e9L9FEM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/LG-65inch-4K-TV_1LW4142020_04-c559e4cc6de64f0c8baf4470f883dd9e-4844a7694fb74eb2904f1128ba93f760.jpeg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -137,7 +137,7 @@ Lifewire / Emily Isaacs
  In addition to the WebOS software, the LG C9 also comes with Google Assistant as well as Amazon’s Alexa. It makes it easy to search content, switch between apps and features, or check the weather, among other things.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Price: A premium price for a premium TV**
@@ -145,10 +145,6 @@ Lifewire / Emily Isaacs
  65-inch 4K TV’s generally retail for between $800-$5,000, and this cost jumps further as screen size increases. The LG C9 is a premium 4K TV that sits at the top of this curve, offering integrated smart technologies and excellent picture with an intuitive, easy-to-use interface. As such, it comes at a premium price of $2,500 (Amazon) that exceeds the cost of many competitor models, but with so many additional features it’s worth the high price—even if it’s difficult to swallow.
 
 [How to Buy a TV For Your Home in 2024](https://www.lifewire.com/best-60-inch-tvs-4580159)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **LG OLED C9 65-inch vs. Samsung 65-inch Class Q60R**
 
@@ -169,6 +165,10 @@ Lifewire / Emily Isaacs
  **An excellent TV you shouldn’t hesitate to buy if you value ease of use and superb image quality.**
 
  With its excellent smart features, gorgeous 4K image quality, and an easy-to-use interface, LG has only improved on last year’s model with the LG OLED C9\. That said, these improvements aren’t significant leaps, mainly coming from processor improvements and the addition of HDMI 2.1 ports. If you’re simply looking for the best TV from last year and price isn’t a consideration, look no further. On the other hand, there are other great 65-inch 4K TV models that may not have all the extra features the C9 does, but do have comparable quality without breaking the bank.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Specs
 
@@ -211,24 +211,22 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-joyful-journeys-in-cinema-summers-top-10-for-families/"><u>[New] In 2024, Joyful Journeys in Cinema Summer's Top 10 for Families</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-step-by-step-process-for-crafting-tiktok-video-captions-for-2024/"><u>[New] Step-by-Step Process for Crafting TikTok Video Captions for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-perfect-conclusion-to-interactive-expeditions/"><u>[Updated] 2024 Approved Perfect Conclusion to Interactive Expeditions</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-perfecting-the-aesthetic-ootd-tiktok-on-a-mac/"><u>[Updated] 2024 Approved Perfecting the Aesthetic OOTD TikTok on a Mac</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-streamline-your-content-with-optimal-tiktok-intro-strategies-mac/"><u>[Updated] 2024 Approved Streamline Your Content with Optimal TikTok Intro Strategies (Mac)</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-crafting-a-viral-identity-the-best-30-innovative-tiktok-handles/"><u>[Updated] In 2024, Crafting a Viral Identity The Best 30 Innovative TikTok Handles</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-constructing-premium-canon-timelapse-movies/"><u>2024 Approved Constructing Premium Canon Timelapse Movies</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-copyright-clarity-how-to-verify-video-rights-pre-upload/"><u>2024 Approved Copyright Clarity How to Verify Video Rights Pre-Upload</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-inshots-ultimate-tune-up-import-music-essentials/"><u>2024 Approved InShot's Ultimate Tune Up Import Music Essentials</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-pinnacle-of-photography-exceptional-sky-hd-sites-catalog/"><u>2024 Approved Pinnacle of Photography - Exceptional Sky HD Sites Catalog</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-stand-out-with-these-20-must-try-tiktok-caption-ideas/"><u>2024 Approved Stand Out with These 20 Must-Try TikTok Caption Ideas</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-ultimate-guide-to-favorite-tiktok-emoji-use-and-hidden-symbols/"><u>2024 Approved The Ultimate Guide to Favorite TikTok Emoji Use & Hidden Symbols</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpts-intellectual-stability-how-openai-refutes-claims-of-declining-smarts/"><u>ChatGPT’s Intellectual Stability: How OpenAI Refutes Claims of Declining Smarts</u></a></li>
-<li><a href="https://extra-information.techidaily.com/ice-capped-inspiration-chinas-sports-spectacle/"><u>Ice-Capped Inspiration China's Sports Spectacle</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Oppo Reno 8T? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/instant-melodic-broadcasts-on-kuaishou/"><u>Instant Melodic Broadcasts on Kuaishou</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/linkedin-luminaries-chatting-with-snapchat/"><u>LinkedIn Luminaries Chatting with Snapchat</u></a></li>
-<li><a href="https://win-premium.techidaily.com/resetting-windows-login-credentials-easily-with-control-panel-instructions-from-yl-software-experts/"><u>Resetting Windows Login Credentials Easily with Control Panel Instructions From YL Software Experts</u></a></li>
-<li><a href="https://win-dash.techidaily.com/step-by-step-guide-to-downloading-and-installing-hp-wireless-network-adapter-drivers-windows-version/"><u>Step-by-Step Guide to Downloading & Installing HP Wireless Network Adapter Drivers (Windows Version)</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-hololens-analysis-a-3d-interface-revolution-by-microsoft/"><u>[New] HoloLens Analysis A 3D Interface Revolution by Microsoft</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-elite-mac-audio-recorders-discover-the-five-best/"><u>[New] In 2024, Elite Mac Audio Recorders Discover the Five Best</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-coolest-tiktok-viral-rap-songs-of-the-year/"><u>[Updated] Coolest TikTok Viral Rap Songs of the Year</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-high-definition-adventures-top-7-camcorders-unveiled/"><u>[Updated] High-Definition Adventures Top 7 Camcorders Unveiled</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-instant-melody-broadcasting-on-dali-video/"><u>[Updated] Instant Melody Broadcasting on Dali Video</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-resume-your-tiktok-journey-post-reload-error-for-2024/"><u>[Updated] Resume Your TikTok Journey Post-Reload Error for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-step-by-step-guide-find-your-own-tiktok-stream-key/"><u>2024 Approved [Step-by-Step Guide] Find Your Own TikTok Stream Key</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-25-animated-visionaries-shaping-tiktok-trends/"><u>2024 Approved 25 Animated Visionaries Shaping TikTok Trends</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-navigate-to-fun-with-tiktok-download-and-setup-for-macbook/"><u>2024 Approved Navigate to Fun with TikTok Download & Setup for MacBook</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-syncopating-scenes-and-beats-the-tiktok-video-guide/"><u>2024 Approved Syncopating Scenes & Beats The TikTok Video Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/7-tips-for-capturing-live-online-classes-gratis/"><u>7 Tips for Capturing Live Online Classes Gratis</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-tecno-spark-10-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Tecno Spark 10 5G | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/highlights-from-chinas-winter-olympiad-2022-for-2024/"><u>Highlights From China's Winter Olympiad 2022 for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Honor Magic 5 Lite? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-secure-growth-of-your-tiktok-fanbase/"><u>In 2024, Secure Growth of Your TikTok Fanbase</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-streamlining-video-transmission-from-facebook-to-whatsapp/"><u>In 2024, Streamlining Video Transmission From Facebook to WhatsApp</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/troubleshooting-obs-frame-loss/"><u>Troubleshooting OBS Frame Loss</u></a></li>
 </ul></div>
 

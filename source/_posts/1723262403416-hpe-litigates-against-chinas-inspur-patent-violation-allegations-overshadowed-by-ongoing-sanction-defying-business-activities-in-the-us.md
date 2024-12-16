@@ -1,7 +1,7 @@
 ---
 title: "HPE Litigates Against China's Inspur: Patent Violation Allegations Overshadowed by Ongoing Sanction-Defying Business Activities in the U.S."
-date: 2024-12-08T17:12:31.815Z
-updated: 2024-12-10T03:10:36.052Z
+date: 2024-12-13T08:28:53.029Z
+updated: 2024-12-15T16:39:32.674Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,18 +60,24 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-unleashing-video-magic-on-tiktok-with-pre-made-designs/"><u>[New] 2024 Approved Unleashing Video Magic on TikTok with Pre-Made Designs</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/new-bring-playlists-down-to-youtube-the-5-best-conversion-resources/"><u>[New] Bring Playlists Down to YouTube The 5 Best Conversion Resources</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-synchronized-soundtracks-the-years-most-recurring-tiktok-songs/"><u>[New] In 2024, Synchronized Soundtracks The Year’s Most Recurring TikTok Songs</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-tickletech-instant-creation-of-laughter-graphics/"><u>[New] In 2024, TickleTech Instant Creation of Laughter Graphics</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-maximize-attendee-visibility-with-google-meet-grids-for-2024/"><u>[New] Maximize Attendee Visibility with Google Meet Grids for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-key-to-social-media-dominance-learning-the-craft-of-self-replication-on-tiktok-for-2024/"><u>[New] The Key to Social Media Dominance Learning the Craft of Self-Replication on TikTok for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-achieve-creative-excellence-on-tiktok-with-easy-border-swapping-strategies/"><u>[Updated] 2024 Approved Achieve Creative Excellence on TikTok with Easy Border Swapping Strategies</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-binge-worthy-20-catchy-tiktok-songs-by-artists/"><u>[Updated] Binge-Worthy 20 Catchy TikTok Songs by Artists</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-blog-thumbnail-proportions-tips/"><u>[Updated] In 2024, Blog Thumbnail Proportions Tips</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-revolutionary-wearable-camera-tech/"><u>[Updated] Revolutionary Wearable Camera Tech</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2023-how-to-check-tiktok-video-copyright-before-uploading-in-2024/"><u>2023 | How to Check Tiktok Video Copyright Before Uploading, In 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-automate-batch-files-with-task-scheduler-on-windows/"><u>How to Automate Batch Files With Task Scheduler on Windows</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/restoring-game-sounds-on-fortnite-the-ultimate-troubleshooting-checklist-for-gamers/"><u>Restoring Game Sounds on Fortnite: The Ultimate Troubleshooting Checklist for Gamers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-20-viral-tiktok-anime-ideas/"><u>[New] In 2024, 20 Viral Tiktok Anime Ideas</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/eak-viewership-decoding-the-ideal-video-release-time/"><u>[New] Peak Viewership Decoding the Ideal Video Release Time</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ecure-extraction-converting-youtube-to-trusted-mp4-for-2024/"><u>[New] Secure Extraction Converting YouTube to Trusted MP4 for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-the-final-act-of-severing-tiktok-ties-temporarily/"><u>[Updated] 2024 Approved The Final Act of Severing TikTok Ties Temporarily</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-innovative-approaches-to-customizing-your-tiktok-videos-for-2024/"><u>[Updated] Innovative Approaches to Customizing Your TikTok Videos for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-strategic-steps-to-determine-a-unique-tiktok-hashtag-for-2024/"><u>[Updated] Strategic Steps to Determine a Unique TikTok Hashtag for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-unveiling-the-art-of-reshaping-your-tiktok-avatar/"><u>2024 Approved Unveiling the Art of Reshaping Your TikTok Avatar</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-vivo-y77t-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Vivo Y77t to iPhone | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/canons-portable-vintage-designed-camera-powershot-g9x2-a-photographers-dream/"><u>Canon's Portable Vintage-Designed Camera, PowerShot G9X2: A Photographer’s Dream</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-oneplus-nord-3-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your OnePlus Nord 3 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/elevate-your-tiktok-skills-with-voiceover/"><u>Elevate Your TikTok Skills with Voiceover</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/from-basics-to-brilliance-implementing-chatgpt-across-all-aspects-of-life/"><u>From Basics to Brilliance: Implementing ChatGPT Across All Aspects of Life</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-enhance-your-tiktok-viewing-experience/"><u>In 2024, Enhance Your TikTok Viewing Experience</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-lock-apps-on-vivo-v29e-to-protect-your-individual-information-by-drfone-android/"><u>In 2024, How to Lock Apps on Vivo V29e to Protect Your Individual Information</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/securing-snapshots-across-android-and-mac-platforms/"><u>Securing Snapshots Across Android and Mac Platforms</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/selecting-a-distinctive-identifier-code-for-your-channel-for-2024/"><u>Selecting a Distinctive Identifier Code for Your Channel for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/snapchat-integration-for-twitters-visual-content/"><u>Snapchat Integration for Twitter's Visual Content</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-full-page-capture-issues-in-safari-a-step-by-step-guide/"><u>Troubleshooting Full Page Capture Issues in Safari: A Step-by-Step Guide</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-vivo-v29-pro-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Vivo V29 Pro Offline? Troubleshooting Guide | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "HPE El Capitan Blade: Harnessing the Power of AMD's Newest Instinct MI300A Card for a World Record Speed Supercomputer by Year's End"
-date: 2024-12-03T05:49:16.051Z
-updated: 2024-12-09T22:22:48.222Z
+date: 2024-12-14T22:25:07.159Z
+updated: 2024-12-15T20:04:14.453Z
 tags:
   - desktop
 categories:
@@ -55,7 +55,7 @@ __Ayaneo Retro Mini PC AM01 Specification__
  That said, if Ayaneo's successful[Indiegogo campaign](https://www.indiegogo.com/projects/ayaneo-retro-mini-pc-creator-of-mini-pc-2-0-era#/) proved anything, it's that users are willing to pay for a fun retro design despite potential trade-offs —[nostalgia is always a great way](https://www.tomshardware.com/peripherals/mechanical-keyboards/grab-this-cool-retro-console-inspired-keyboard-for-just-dollar83) to get people to buy something.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -81,19 +81,19 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-2024-approved-master-the-art-of-audio-alteration-in-sony-games/"><u>[New] 2024 Approved Master the Art of Audio Alteration in Sony Games</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-beginner-friendly-steps-to-record-your-mac-display/"><u>[New] In 2024, Beginner-Friendly Steps to Record Your Mac Display</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-reverse-video-techniques-for-android-devices/"><u>[New] Reverse Video Techniques for Android Devices</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-profit-prowess-a-comprehensive-guide-to-8-tiktok-money-making-methods/"><u>[Updated] 2024 Approved Profit Prowess A Comprehensive Guide to 8 TikTok Money-Making Methods</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-unlock-creative-potential-crafting-tiktok-videos-using-templates/"><u>[Updated] 2024 Approved Unlock Creative Potential Crafting TikTok Videos Using Templates</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-discovering-efficient-multitasking-with-ffxp-for-2024/"><u>[Updated] Discovering Efficient Multitasking with FFXP for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-media-recorder-disassembler-for-2024/"><u>[Updated] Media Recorder Disassembler for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-exemplary-execution-using-apple-watch-to-open-mac/"><u>2024 Approved Exemplary Execution Using Apple Watch to Open Mac</u></a></li>
-<li><a href="https://techtrends.techidaily.com/contents-of-a-standard-nintendo-switch-packaging-setup/"><u>Contents of a Standard Nintendo Switch Packaging Setup</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/crafters-guide-to-crafting-a-unique-tiktok-keyphrase-for-2024/"><u>Crafters' Guide to Crafting a Unique TikTok Keyphrase for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-nokia-c300-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Nokia C300 | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-be-the-best-lifeguard-at-your-friends-tiktok-shores/"><u>In 2024, Be the Best Lifeguard at Your Friends’ TikTok Shores</u></a></li>
-<li><a href="https://change-location.techidaily.com/ipogo-will-be-the-new-ispoofer-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Samsung Galaxy A15 4G? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/most-reliable-web-tiktop-to-mp3-free-tools-revealed-for-2024/"><u>Most Reliable Web TikTop to MP3 Free Tools Revealed for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-dominate-online-chatter-secrets-to-buzz-creating-for-2024/"><u>[New] Dominate Online Chatter Secrets to Buzz-Creating for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-most-popular-iphone-podcast-soundshare/"><u>[New] Most Popular iPhone Podcast Soundshare</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-add-fade-inout-premiere-pro/"><u>[Updated] 2024 Approved Add Fade In/Out Premiere Pro</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-top-fonts-to-amplify-your-tiktok-presence-in-23/"><u>[Updated] 2024 Approved Top Fonts to Amplify Your TikTok Presence in '23</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-blueprint-to-top-notch-tiktok-marketing-mastery-for-2024/"><u>[Updated] Blueprint to Top-Notch TikTok Marketing Mastery for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-unlock-the-potential-of-your-tiktok-videos-with-new-backgrounds/"><u>[Updated] In 2024, Unlock the Potential of Your TikTok Videos with New Backgrounds</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-inside-look-how-mycam-shapes-your-visual-storytelling-for-2024/"><u>[Updated] Inside Look How MyCam Shapes Your Visual Storytelling for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-master-7-tiktok-tools-for-maximum-viral-growth/"><u>[Updated] Master 7 TikTok Tools for Maximum Viral Growth</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-maximizing-tiktok-income-8-must-try-strategies-for-2024/"><u>[Updated] Maximizing TikTok Income 8 Must-Try Strategies for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-to-integrate-youtube-playlists-into-your-site/"><u>2024 Approved How to Integrate YouTube Playlists Into Your Site</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/expert-guidance-on-the-latest-gadgets-with-toms-hardware-experts/"><u>Expert Guidance on the Latest Gadgets with Tom's Hardware Experts</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-get-savvy-with-screen-recording-on-xiaomi-mi-11/"><u>In 2024, Get Savvy with Screen Recording on Xiaomi Mi 11</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-itel-p55-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Itel P55 to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/signs-of-trouble-is-factory-reset-right-for-your-pc/"><u>Signs of Trouble: Is Factory Reset Right for Your PC</u></a></li>
 </ul></div>
 

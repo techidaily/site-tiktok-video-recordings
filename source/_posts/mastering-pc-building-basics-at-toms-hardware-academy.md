@@ -1,7 +1,7 @@
 ---
 title: Mastering PC Building Basics at Tom's Hardware Academy
-date: 2024-12-02T21:06:41.522Z
-updated: 2024-12-10T04:44:40.972Z
+date: 2024-12-13T21:24:27.226Z
+updated: 2024-12-16T02:58:56.225Z
 tags:
   - desktop
 categories:
@@ -42,7 +42,7 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
  We caught a first glimpse of the AtomMan X7 Ti[at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) when it was showcased with other interesting new computers like the Minisforum HX200G, Mini Workstation MS-01, and the[V3 tablet](https://www.tomshardware.com/tablets/minisforum-v3-tablet-arrives-the-worlds-first-amd-ryzen-7-8840u-powered-surface-clone) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -68,22 +68,17 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-how-to-find-your-own-tiktok-stream-key/"><u>[New] 2024 Approved How to Find Your Own TikTok Stream Key</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-become-an-elite-joiner-tips-for-tiktok-lives-for-2024/"><u>[New] Become an Elite Joiner Tips for TikTok Lives for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-vocal-ensemble-in-the-digital-age-tiktok-edition/"><u>[New] In 2024, Vocal Ensemble in the Digital Age TikTok Edition</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-the-best-spots-for-free-downloadable-got-ringtones/"><u>[Updated] In 2024, The Best Spots for Free Downloadable GoT Ringtones</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-the-template-trick-for-eye-catching-tiktok-creation-mastery-for-2024/"><u>[Updated] The Template Trick for Eye-Catching TikTok Creation Mastery for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-channel-your-tiktok-talent-chromeandroidios-guide/"><u>2024 Approved Channel Your TikTok Talent Chrome/Android/iOS Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enhance-engagement-top-tools-and-tips-for-properly-tagged-videos/"><u>Enhance Engagement Top Tools and Tips for Properly Tagged Videos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/friendly-reminder-how-to-chill-at-someones-tiktok-party-for-2024/"><u>Friendly Reminder How To Chill at Someone's TikTok Party for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-apple-iphone-12-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 6 Ways to Change Spotify Location On Your Apple iPhone 12 Pro | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-honor-90-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Honor 90 Pattern Lock Screen</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-note-13-5g-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi Note 13 5G Phone without Any Data Loss</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unlock-virtual-realms-on-your-phone-with-simple-steps/"><u>In 2024, Unlock Virtual Realms on Your Phone with Simple Steps</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Sony Xperia 1 V? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/increase-your-social-media-reach-with-these-top-30-tiktok-nicknames-for-2024/"><u>Increase Your Social Media Reach with These Top 30 TikTok Nicknames for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/pixel-perfection-cutestscariest-filter-guide-for-tiktoks-for-2024/"><u>Pixel Perfection Cutest/Scariest Filter Guide for TikToks for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/revolutionize-your-roku-experience-the-ultimate-solution-for-finding-lost-remotes-now-available/"><u>Revolutionize Your Roku Experience: The Ultimate Solution for Finding Lost Remotes, Now Available!</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/vivo-y200e-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>Vivo Y200e 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-discover-7-unforgettable-marriage-videos-on-vimeo/"><u>[New] In 2024, Discover 7 Unforgettable Marriage Videos on Vimeo</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-the-essential-guide-to-expanding-your-tiktok-reach-and-interactions/"><u>[Updated] 2024 Approved The Essential Guide to Expanding Your TikTok Reach & Interactions</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-amplifying-your-tiktok-impact-insights-into-growing-your-community-for-2024/"><u>[Updated] Amplifying Your TikTok Impact Insights Into Growing Your Community for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-choreographing-a-memorable-tiktok-fade-out-for-2024/"><u>[Updated] Choreographing a Memorable TikTok Fade-Out for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-a-swift-guide-to-faster-more-engaging-tiktoks/"><u>[Updated] In 2024, A Swift Guide to Faster, More Engaging TikToks</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-navigating-tiktok-on-both-mac-and-windows-devices/"><u>[Updated] In 2024, Navigating TikTok on Both Mac & Windows Devices</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-acid-pro-effect-exploring-similar-tools/"><u>[Updated] The ACID Pro Effect Exploring Similar Tools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-is-auroras-hdr-enhancing-your-viewing-experience/"><u>2024 Approved Is Aurora's HDR Enhancing Your Viewing Experience?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-apple-iphone-11-pro-max-without-swiping-up-6-ways-by-drfone-ios/"><u>How To Unlock Apple iPhone 11 Pro Max Without Swiping Up? 6 Ways</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/making-words-dance-the-art-of-sculpted-photographic-content/"><u>Making Words Dance The Art of Sculpted Photographic Content</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/photography-fundamentals-tips-and-apps-for-android/"><u>Photography Fundamentals Tips & Apps for Android</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-insights-exploring-the-latest-in-computer-components/"><u>Tom's Tech Insights: Exploring the Latest in Computer Components</u></a></li>
 </ul></div>
 

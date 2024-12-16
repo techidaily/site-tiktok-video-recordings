@@ -1,7 +1,7 @@
 ---
 title: "The Freedom of Portability: Power, Networking, & Intel CPU Inside the Miniaturized Minisforum S100 PC"
-date: 2024-12-05T06:57:16.436Z
-updated: 2024-12-10T03:46:06.465Z
+date: 2024-12-11T09:24:34.824Z
+updated: 2024-12-15T18:47:28.200Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,19 +76,24 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-instantly-impress-followers-with-an-updated-tiktok-bio-and-pics/"><u>[New] 2024 Approved Instantly Impress Followers with an Updated TikTok Bio & Pics</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-the-snapchat-savants-handbook-perfecting-every-boomerang/"><u>[New] 2024 Approved The Snapchat Savant's Handbook Perfecting Every Boomerang</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-art-of-perfection-in-tiktok-production-with-designed-video-templates-for-2024/"><u>[New] The Art of Perfection in TikTok Production with Designed Video Templates for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-best-humor-image-processor-for-2024/"><u>[Updated] Best Humor Image Processor for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-nikons-challenge-to-gopro-hero-black-in-video-realm/"><u>[Updated] In 2024, Nikon's Challenge to GoPro HERO Black in Video Realm</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-20plus-ways-to-earn-from-your-facebook-community/"><u>2024 Approved 20+ Ways to Earn From Your Facebook Community</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-silencers-guide-banishing-background-buzz/"><u>2024 Approved The Silencer's Guide Banishing Background Buzz</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-top-20-country-anthems-from-tiktoks-chillest-stations/"><u>2024 Approved Top 20 Country Anthems From TikTok's Chillest Stations</u></a></li>
-<li><a href="https://fox-shield.techidaily.com/die-effiziente-losung-fur-nicht-bootfahige-datentrager-in-windows-11-mach-es-jetzt/"><u>Die Effiziente Lösung Für Nicht Bootfähige Datenträger in Windows 11 – Mach Es Jetzt!</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/essential-techniques-for-making-and-tweaking-multi-snap-chats/"><u>Essential Techniques for Making & Tweaking Multi-Snap Chats</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/expert-review-can-any-competitor-dethrone-the-dominant-amazon-echo-studio-in-the-smart-speaker-arena-zdnet-insights/"><u>Expert Review: Can Any Competitor Dethrone the Dominant Amazon Echo Studio in the Smart Speaker Arena | ZDNet Insights</u></a></li>
-<li><a href="https://games-able.techidaily.com/explore-pokemons-universe-on-your-ios-device-today/"><u>Explore Pokémon's Universe on Your iOS Device Today</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-laugh-ledger-a-compendium-of-current-comedy-sensations/"><u>In 2024, Laugh Ledger A Compendium of Current Comedy Sensations</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-essential-techniques-for-fast-forwarding-in-spotify/"><u>The Essential Techniques for Fast-Forwarding in Spotify</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-dare-to-be-noteworthy-top-30-innovative-tiktok-usernames-for-2024/"><u>[New] Dare to Be Noteworthy Top 30 Innovative TikTok Usernames for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-beam-into-collaborative-spaces-within-tiktok/"><u>[New] In 2024, Beam Into Collaborative Spaces Within TikTok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-voice-modification-on-tiktok-a-step-by-step-guide/"><u>[New] Mastering Voice Modification on TikTok A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-mirthful-mayhem-makers-for-2024/"><u>[New] Mirthful Mayhem Makers for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-sonic-shakers-the-ultimate-audio-rippers-list/"><u>[New] Sonic Shakers The Ultimate Audio Rippers List</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-effortless-and-effective-embedding-youtube-in-gslides/"><u>[Updated] 2024 Approved Effortless and Effective - Embedding YouTube in GSlides</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-elevate-your-virtual-engagement-with-snap-capabilities-in-meet/"><u>[Updated] 2024 Approved Elevate Your Virtual Engagement with Snap Capabilities in Meet</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-chuckles-chronicles-current-hot-trends-in-comedy-for-2024/"><u>[Updated] Chuckles Chronicles Current Hot Trends in Comedy for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-creating-an-individualistic-tiktok-identifier/"><u>[Updated] Creating an Individualistic TikTok Identifier</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gifs-to-glam-a-complete-guide-to-creating-emojis-on-telegram-and-whatsapp/"><u>[Updated] GIFs-to-Glam A Complete Guide to Creating Emojis on Telegram & WhatsApp</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-perfecting-your-tiktok-content-utilizing-templates-to-enhance-videos/"><u>[Updated] In 2024, Perfecting Your TikTok Content Utilizing Templates to Enhance Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-increase-your-social-media-impact-hot-tiktok-hashtags-for-growth-for-2024/"><u>[Updated] Increase Your Social Media Impact Hot TikTok Hashtags for Growth for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-new-era-of-racing-vr-bike-selection-guide-for-2024/"><u>[Updated] New Era of Racing VR Bike Selection Guide for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unleash-the-fun-of-jumping-into-tiktok-lives-for-2024/"><u>[Updated] Unleash the Fun of Jumping Into TikTok Lives for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/a-step-by-step-journey-to-pc-live-streams-master-tiktok-live-for-2024/"><u>A Step-By-Step Journey to PC Live Streams – Master TikTok LIVE for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/caught-in-the-act-tiktoks-flawed-algorithm-promotes-outdated-stories/"><u>Caught in the Act: TikTok's Flawed Algorithm Promotes Outdated Stories</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-mobile-audio-enhancers-for-swift-soundplay/"><u>In 2024, Mobile Audio Enhancers for Swift Soundplay</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/kostenlose-methode-zum-ubertragen-von-filmen-wie-du-eine-dvd-auf-einem-usb-flash-drive-speicherst/"><u>Kostenlose Methode Zum Übertragen Von Filmen: Wie Du Eine DVD Auf Einem USB-Flash Drive Speicherst</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/maximizing-your-pcs-potential-top-strategies-for-system-optimization-insights-from-yl-computing/"><u>Maximizing Your PC's Potential: Top Strategies for System Optimization - Insights From YL Computing</u></a></li>
 </ul></div>
 
