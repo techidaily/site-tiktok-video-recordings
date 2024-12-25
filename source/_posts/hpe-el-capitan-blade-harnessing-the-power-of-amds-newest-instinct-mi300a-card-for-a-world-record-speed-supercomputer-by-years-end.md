@@ -1,7 +1,7 @@
 ---
 title: "HPE El Capitan Blade: Harnessing the Power of AMD's Newest Instinct MI300A Card for a World Record Speed Supercomputer by Year's End"
-date: 2024-12-14T22:25:07.159Z
-updated: 2024-12-15T20:04:14.453Z
+date: 2024-12-18T21:13:46.497Z
+updated: 2024-12-25T08:13:24.030Z
 tags:
   - desktop
 categories:
@@ -55,7 +55,7 @@ __Ayaneo Retro Mini PC AM01 Specification__
  That said, if Ayaneo's successful[Indiegogo campaign](https://www.indiegogo.com/projects/ayaneo-retro-mini-pc-creator-of-mini-pc-2-0-era#/) proved anything, it's that users are willing to pay for a fun retro design despite potential trade-offs —[nostalgia is always a great way](https://www.tomshardware.com/peripherals/mechanical-keyboards/grab-this-cool-retro-console-inspired-keyboard-for-just-dollar83) to get people to buy something.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -81,19 +81,15 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-dominate-online-chatter-secrets-to-buzz-creating-for-2024/"><u>[New] Dominate Online Chatter Secrets to Buzz-Creating for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-most-popular-iphone-podcast-soundshare/"><u>[New] Most Popular iPhone Podcast Soundshare</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-2024-approved-add-fade-inout-premiere-pro/"><u>[Updated] 2024 Approved Add Fade In/Out Premiere Pro</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-top-fonts-to-amplify-your-tiktok-presence-in-23/"><u>[Updated] 2024 Approved Top Fonts to Amplify Your TikTok Presence in '23</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-blueprint-to-top-notch-tiktok-marketing-mastery-for-2024/"><u>[Updated] Blueprint to Top-Notch TikTok Marketing Mastery for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-unlock-the-potential-of-your-tiktok-videos-with-new-backgrounds/"><u>[Updated] In 2024, Unlock the Potential of Your TikTok Videos with New Backgrounds</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-inside-look-how-mycam-shapes-your-visual-storytelling-for-2024/"><u>[Updated] Inside Look How MyCam Shapes Your Visual Storytelling for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-master-7-tiktok-tools-for-maximum-viral-growth/"><u>[Updated] Master 7 TikTok Tools for Maximum Viral Growth</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-maximizing-tiktok-income-8-must-try-strategies-for-2024/"><u>[Updated] Maximizing TikTok Income 8 Must-Try Strategies for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-how-to-integrate-youtube-playlists-into-your-site/"><u>2024 Approved How to Integrate YouTube Playlists Into Your Site</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/expert-guidance-on-the-latest-gadgets-with-toms-hardware-experts/"><u>Expert Guidance on the Latest Gadgets with Tom's Hardware Experts</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-get-savvy-with-screen-recording-on-xiaomi-mi-11/"><u>In 2024, Get Savvy with Screen Recording on Xiaomi Mi 11</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-itel-p55-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Itel P55 to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/signs-of-trouble-is-factory-reset-right-for-your-pc/"><u>Signs of Trouble: Is Factory Reset Right for Your PC</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-from-behind-the-screen-to-in-front-masterful-guide-on-tiktok-username-transformation/"><u>[New] 2024 Approved From Behind the Screen to In Front Masterful Guide on TikTok Username Transformation</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-a-beginners-guide-to-using-siri-in-your-tiktok-videos-for-2024/"><u>[New] A Beginner's Guide to Using Siri in Your TikTok Videos for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-gopro-studio-tips-the-pathway-to-impressive-time-lapse-video-for-2024/"><u>[New] GoPro Studio Tips The Pathway to Impressive Time Lapse Video for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/amplify-tiktok-fame-in-just-a-minute-crucial-steps-unveiled/"><u>Amplify TikTok Fame in Just a Minute - Crucial Steps Unveiled</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/engaging-with-jujutsu-kaisen-fans-through-tiktok-challenges-for-2024/"><u>Engaging with Jujutsu Kaisen Fans Through TikTok Challenges for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-c110-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on C110</u></a></li>
+<li><a href="https://driver-install.techidaily.com/increase-operating-system-stability-with-e1659fwv-update/"><u>Increase Operating System Stability with E1659FWV Update</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/precision-scheduling-for-peak-performance-a-guide-to-slack-filmora-meetings/"><u>Precision Scheduling for Peak Performance A Guide to Slack-Filmora Meetings</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unbelievable-discovery-communicating-with-chatgpt/"><u>Unbelievable Discovery: Communicating With ChatGPT</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/uncovering-stardews-depths-with-ginger-island-adventures/"><u>Uncovering Stardew's Depths with Ginger Island Adventures</u></a></li>
 </ul></div>
 

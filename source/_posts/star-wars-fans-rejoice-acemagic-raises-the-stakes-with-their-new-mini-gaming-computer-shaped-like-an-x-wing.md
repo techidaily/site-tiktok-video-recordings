@@ -1,7 +1,7 @@
 ---
 title: "Star Wars Fans Rejoice: AceMagic Raises the Stakes with Their New Mini Gaming Computer Shaped Like an X-Wing"
-date: 2024-12-10T20:30:02.390Z
-updated: 2024-12-16T08:14:04.240Z
+date: 2024-12-17T17:57:41.888Z
+updated: 2024-12-25T07:22:38.624Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,20 +62,21 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-harmonizing-scores-with-cinematic-vision-in-film-trailers-for-2024/"><u>[New] Harmonizing Scores with Cinematic Vision in Film Trailers for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-cost-efficient-top-screen-recorder-apps-for-chromeos/"><u>[New] In 2024, Cost-Efficient Top Screen Recorder Apps for ChromeOS</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-the-complete-hulu-recording-manual-for-pc-mac-and-mobile-users-for-2024/"><u>[New] The Complete Hulu Recording Manual for PC, Mac & Mobile Users for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-non-sharex-heroes-for-secure-file-sharing/"><u>[Updated] 2024 Approved Non-ShareX Heroes for Secure File Sharing</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-30-awesome-tiktok-inspired-finds-on-amazon-dont-miss-them-for-2024/"><u>[Updated] 30 Awesome TikTok-Inspired Finds on Amazon – Don’t Miss Them for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-accelerate-tiktok-popularity-essential-countdown-guidance-for-2024/"><u>[Updated] Accelerate TikTok Popularity Essential Countdown Guidance for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-convert-tiktok-to-mp4-without-watermark-best-tiktok-downloaders-for-2024/"><u>[Updated] Convert TikTok to MP4 without Watermark Best TikTok Downloaders for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-dynamic-dynamics-groundbreaking-bio-formats-that-expand-follower-numbers-on-tiktok-filmora-for-2024/"><u>[Updated] Dynamic Dynamics Groundbreaking Bio Formats that Expand Follower Numbers on TikTok-Filmora for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-exploring-the-pro-features-of-dji-phantom-3-technology/"><u>[Updated] Exploring the Pro Features of DJI Phantom 3 Technology</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-peak-content-performance-the-ultimate-list-of-powerful-tiktok-captions/"><u>[Updated] In 2024, Peak Content Performance The Ultimate List of Powerful TikTok Captions</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-rectified-hidden-status-of-shorts/"><u>[Updated] Rectified Hidden Status of Shorts</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-ten-powerful-tiktok-strategies-for-viral-success/"><u>[Updated] Ten Powerful TikTok Strategies for Viral Success</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-15-apps-to-hack-wifi-password-on-itel-s23-by-drfone-android/"><u>In 2024, Top 15 Apps To Hack WiFi Password On Itel S23</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/the-evolution-of-laptop-computing-2020-macbook-pro-with-m1-processor-analyzed/"><u>The Evolution of Laptop Computing: 2020 MacBook Pro with M1 Processor Analyzed</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-bold-bio-brilliance-groundbreaking-ideas-for-increasing-follower-count-on-tiktok-through-filmora/"><u>[New] 2024 Approved Bold Bio Brilliance Groundbreaking Ideas for Increasing Follower Count on TikTok Through Filmora</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-breaking-through-on-tiktok-personal-branding-and-differentiation/"><u>[New] 2024 Approved Breaking Through on TikTok Personal Branding and Differentiation</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-aspiring-star-top-tiktok-techniques-to-amplify-your-reach-for-2024/"><u>[New] Aspiring Star Top TikTok Techniques to Amplify Your Reach for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-growth-in-the-grove-top-7-stardew-valley-addons/"><u>[Updated] Growth in the Grove Top 7 Stardew Valley Addons</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-creating-captivating-tiktok-outro-sequences/"><u>2024 Approved Creating Captivating TikTok Outro Sequences</u></a></li>
+<li><a href="https://games-able.techidaily.com/comprehensive-andaseat-kaiser-3-analysis-and-ranking-the-best-seats-of-2022-unveiled/"><u>Comprehensive AndaSeat Kaiser 3 Analysis & Ranking - The Best Seats of 2022 Unveiled!</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/design-your-signature-discord-pfp-for-standout-presence/"><u>Design Your Signature Discord PFP for Standout Presence</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/expertly-crafted-money-estimator-apps-for-tiktok-users-for-2024/"><u>Expertly Crafted Money Estimator Apps for TikTok Users for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/exploring-pleasure-in-play-the-thrilling-world-of-pokemon-shining-pearl/"><u>Exploring Pleasure in Play: The Thrilling World of Pokémon Shining Pearl</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-what-legendaries-are-in-pokemon-platinum-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What Legendaries Are In Pokemon Platinum On Xiaomi Redmi Note 12T Pro? | Dr.fone</u></a></li>
+<li><a href="https://article-posts.techidaily.com/lean-cloud-archive-efficient-low-cost-large-data-for-2024/"><u>Lean Cloud Archive Efficient, Low-Cost Large Data for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/leap-to-the-top-with-these-8-fast-track-tiktok-steps/"><u>Leap to the Top with These 8 Fast-Track TikTok Steps</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/strategies-for-apps-that-wont-download-from-play-store-on-oppo-a78-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Strategies for Apps That Wont Download From Play Store On Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tame-noisy-keys-regaining-control-over-sound-on-your-pc/"><u>Tame Noisy Keys: Regaining Control Over Sound on Your PC</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/transforming-footage-into-high-quality-content/"><u>Transforming Footage Into High-Quality Content</u></a></li>
 </ul></div>
 

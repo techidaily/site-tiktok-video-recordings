@@ -1,7 +1,7 @@
 ---
 title: "The Freedom of Portability: Power, Networking, & Intel CPU Inside the Miniaturized Minisforum S100 PC"
-date: 2024-12-11T09:24:34.824Z
-updated: 2024-12-15T18:47:28.200Z
+date: 2024-12-18T05:31:26.271Z
+updated: 2024-12-24T17:33:04.915Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,24 +76,19 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-dare-to-be-noteworthy-top-30-innovative-tiktok-usernames-for-2024/"><u>[New] Dare to Be Noteworthy Top 30 Innovative TikTok Usernames for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-beam-into-collaborative-spaces-within-tiktok/"><u>[New] In 2024, Beam Into Collaborative Spaces Within TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-voice-modification-on-tiktok-a-step-by-step-guide/"><u>[New] Mastering Voice Modification on TikTok A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-mirthful-mayhem-makers-for-2024/"><u>[New] Mirthful Mayhem Makers for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-sonic-shakers-the-ultimate-audio-rippers-list/"><u>[New] Sonic Shakers The Ultimate Audio Rippers List</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-effortless-and-effective-embedding-youtube-in-gslides/"><u>[Updated] 2024 Approved Effortless and Effective - Embedding YouTube in GSlides</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-elevate-your-virtual-engagement-with-snap-capabilities-in-meet/"><u>[Updated] 2024 Approved Elevate Your Virtual Engagement with Snap Capabilities in Meet</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-chuckles-chronicles-current-hot-trends-in-comedy-for-2024/"><u>[Updated] Chuckles Chronicles Current Hot Trends in Comedy for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-creating-an-individualistic-tiktok-identifier/"><u>[Updated] Creating an Individualistic TikTok Identifier</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-gifs-to-glam-a-complete-guide-to-creating-emojis-on-telegram-and-whatsapp/"><u>[Updated] GIFs-to-Glam A Complete Guide to Creating Emojis on Telegram & WhatsApp</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-perfecting-your-tiktok-content-utilizing-templates-to-enhance-videos/"><u>[Updated] In 2024, Perfecting Your TikTok Content Utilizing Templates to Enhance Videos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-increase-your-social-media-impact-hot-tiktok-hashtags-for-growth-for-2024/"><u>[Updated] Increase Your Social Media Impact Hot TikTok Hashtags for Growth for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-new-era-of-racing-vr-bike-selection-guide-for-2024/"><u>[Updated] New Era of Racing VR Bike Selection Guide for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unleash-the-fun-of-jumping-into-tiktok-lives-for-2024/"><u>[Updated] Unleash the Fun of Jumping Into TikTok Lives for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/a-step-by-step-journey-to-pc-live-streams-master-tiktok-live-for-2024/"><u>A Step-By-Step Journey to PC Live Streams – Master TikTok LIVE for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/caught-in-the-act-tiktoks-flawed-algorithm-promotes-outdated-stories/"><u>Caught in the Act: TikTok's Flawed Algorithm Promotes Outdated Stories</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-mobile-audio-enhancers-for-swift-soundplay/"><u>In 2024, Mobile Audio Enhancers for Swift Soundplay</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/kostenlose-methode-zum-ubertragen-von-filmen-wie-du-eine-dvd-auf-einem-usb-flash-drive-speicherst/"><u>Kostenlose Methode Zum Übertragen Von Filmen: Wie Du Eine DVD Auf Einem USB-Flash Drive Speicherst</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/maximizing-your-pcs-potential-top-strategies-for-system-optimization-insights-from-yl-computing/"><u>Maximizing Your PC's Potential: Top Strategies for System Optimization - Insights From YL Computing</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-lightning-fast-photo-tweaks-in-windows-11/"><u>[New] Lightning-Fast Photo Tweaks in Windows 11</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-streamline-operations-ranking-the-top-8-facebook-task-managers/"><u>[New] Streamline Operations Ranking the Top 8 Facebook Task Managers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-8-must-have-tiktok-tools-to-boost-your-growth/"><u>[Updated] 8 Must-Have TikTok Tools to Boost Your Growth</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-dont-skip-this-weeks-hot-tiktok-tests-for-2024/"><u>[Updated] Don't Skip This Week's Hot TikTok Tests for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-how-to-dominate-tiktoks-trending-topics-for-more-engagement/"><u>[Updated] In 2024, How to Dominate TikTok's Trending Topics for More Engagement</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-social-media-showdown-is-likee-set-to-dominate-over-tiktok/"><u>[Updated] Social Media Showdown Is Likee Set to Dominate Over TikTok?</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-step-into-the-stream-a-guide-to-roku-and-facebook-live-broadcasts-for-2024/"><u>[Updated] Step Into the Stream A Guide to ROKU & Facebook Live Broadcasts for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-tap-into-the-quickest-way-for-downloading-musically-videos/"><u>[Updated] Tap Into the Quickest Way for Downloading Musical.ly Videos</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-elevate-your-profile-picture-game-with-these-high-end-online-services/"><u>2024 Approved Elevate Your Profile Picture Game with These High-End Online Services</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-infinix-hot-40i-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Infinix Hot 40i</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-tecno-pova-6-pro-5g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Tecno Pova 6 Pro 5G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/free-online-converter-turn-mp4-videos-into-3gp-format-using-movavi/"><u>Free Online Converter: Turn MP4 Videos Into .3Gp Format Using Movavi</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/geekom-mega-mini-g1-the-innovative-fish-tank-pc-with-tecno-xs-core-i9-13900h-cpu-and-nvidia-rtx-cu4060-graphics/"><u>GeekOm Mega Mini G1 - The Innovative Fish-Tank PC with Tecno X's Core I9-13900H CPU & NVIDIA RTX Cu4060 Graphics</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-leading-face-transformation-apps-for-iphones-and-androids/"><u>In 2024, Leading Face Transformation Apps for iPhones & Androids</u></a></li>
 </ul></div>
 
