@@ -1,7 +1,7 @@
 ---
 title: Unbox and Test Ride the New CycWagen Electric Cargo Bike - Expert Insights
-date: 2024-12-18T08:39:58.204Z
-updated: 2024-12-25T08:01:31.501Z
+date: 2024-12-29T17:57:27.841Z
+updated: 2025-01-03T17:23:13.088Z
 categories:
   - BestProducts
 description: This Article Describes Unbox and Test Ride the New CycWagen Electric Cargo Bike - Expert Insights
@@ -16,6 +16,10 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
 ## Beantech Bitwatch S1 Plus
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/JogmBSjTGQl_gqbjuX8prgeJJPA=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -37,17 +41,9 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
 
 4
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Beantech Bitwatch S1 Plus
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/RIxQYWLMnyHkO9IcguCoRX11EbY=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_4LW4157747-1-dfa15264b03549839f5145eaa099abb2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Ramirez
 
@@ -72,6 +68,10 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/8rMhc1Lk5yFRFW4Zlt2K9cmPdFo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-4-01d7e5ff51aa47008d803513064f4a7a.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Lifewire / Emily Ramirez
 
 ## **Design and Software: A surprising amount of features in this chunky watch**
@@ -84,6 +84,10 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
 
  While it doesn’t have[NFC](https://www.lifewire.com/what-is-nfc-832715) or GPS, it does have a speaker, and you can send basic messages with the watch. The Bitwatch S1 is surprisingly robust for those who want to dip their toes into the smartwatch experience, with many of the features that mid-tier smartwatches possess.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Setup Process: Easy, but unexplained**
 
  Setting up the Bitwatch works as you’d expect. Pair it via the Bluetooth on your phone and download the Beantech app. It works with both Android and iOS, so you should have no difficulty. Alerts will show up in the remote notifier app, and apps such as the calendar are not synced with your phone’s calendar apps, so keep that in mind if you’d like to add any events, notifications, or alarms to your watch.
@@ -91,10 +95,6 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/O7xHfA9sKsBdC0nmqNXbFky-Dm4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-2-3b838f1124184bbd9452b79bb8449c2b.jpg)
 
  Lifewire / Emily Ramirez
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Performance: You get what you pay for**
 
@@ -108,25 +108,25 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
 
 ![Beantech Bitwatch S1 Plus Smartwatch](https://www.lifewire.com/thmb/7GtX2IU-w4sJA-BTqQtHQThxaJo=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/4LW4157747-3-ade31135cd9d4fe0b6b01286941d2652.jpg)
 
- Lifewire / Emily Ramirez
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Lifewire / Emily Ramirez
 
 ## **Battery: It last longer than most flagship smartwatches**
 
  The battery life on the Bitwatch is excellent. With regular usage (GPS, heart rate, Bluetooth all on), we got between two and three days of use before we had to recharge. Charging is a little annoying, though, since it uses a snapping charger base that’s difficult to remove.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Price: Reasonable, but worth paying more**
 
  The Bitwatch costs about $50, which is reasonable for its features and performance. You get reliable notifications and a passable heart rate monitor, as well as some basic functions like alarms and a speaker. If you want a cheap smartwatch, then the Bitwatch isn’t a bad pick, but $30 more can get you GPS and smarter notifications. If you are after a solid fitness tracker, both Garmin and[Fitbit](https://www.lifewire.com/what-is-fitbit-4176010) have[fantastic wearables](https://www.lifewire.com/phone-accessory-reviews-4102587) for under $100.
 
  The Beantech Bitwatch is not a groundbreaking smartwatch, but it provides a lot of essential features for $50.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Competition: If you want more, it will cost more**
 
@@ -169,18 +169,19 @@ thumbnail: https://www.lifewire.com/thmb/PBPm-id9qcWXCk5uPew07zmlEow=/400x300/fi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-filmmakers-finesse-for-fabulous-tiktok-reactions-with-filmora-pro-tools/"><u>[New] 2024 Approved Filmmaker’s Finesse for Fabulous TikTok Reactions with Filmora Pro Tools</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-mastering-the-art-of-social-media-top-7-essential-tiktok-emojis/"><u>[New] 2024 Approved Mastering the Art of Social Media Top 7 Essential TikTok Emojis</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-tackle-missing-thumbnails-on-youtube-shorts/"><u>[Updated] 2024 Approved How to Tackle Missing Thumbnails on YouTube Shorts</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-illuminating-pathways-through-mixed-realitys-domain/"><u>[Updated] Illuminating Pathways Through Mixed Reality's Domain</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-transform-your-memories-into-engaging-facebook-slides/"><u>2024 Approved Transform Your Memories Into Engaging Facebook Slides</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/building-a-unique-presence-when-overshadowed-by-influencers-for-2024/"><u>Building a Unique Presence When Overshadowed by Influencers for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/creating-popular-jujutsu-kaisen-tiktok-content-for-2024/"><u>Creating Popular Jujutsu Kaisen TikTok Content for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/earning-success-on-tiktok-unraveling-the-top-8-pathways-for-2024/"><u>Earning Success on TikTok Unraveling the Top 8 Pathways for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-crafting-a-new-digital-persona-comprehensible-steps-for-changing-tiktok-handle/"><u>In 2024, Crafting a New Digital Persona Comprehensible Steps for Changing TikTok Handle</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-mastering-metaverse-designs-your-quick-start-for-avatars/"><u>In 2024, Mastering Metaverse Designs Your Quick-Start for Avatars</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-tailoring-and-downloading-instagram-alerts-independently/"><u>In 2024, Tailoring & Downloading Instagram Alerts Independently</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-lumafusion-on-mac-installation-guide-and-alternative-options-for-2024/"><u>New Lumafusion on Mac Installation Guide and Alternative Options for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/seamlessly-integrate-android-experience-into-your-windows-10-desktop/"><u>Seamlessly Integrate Android Experience Into Your Windows 10 Desktop</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/xpand-your-reach-effective-youtube-campaigns/"><u>[New] Expand Your Reach Effective YouTube Campaigns</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-snapcutmaster-insights-full-scrutiny/"><u>[New] SnapCutMaster Insights – Full Scrutiny</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-a-beginners-guide-to-using-siri-in-your-tiktok-videos/"><u>[Updated] 2024 Approved A Beginner's Guide to Using Siri in Your TikTok Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-affordable-video-editing-solutions-mac-os-on-tiktok/"><u>[Updated] 2024 Approved Affordable Video Editing Solutions (Mac OS) on TikTok</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-leverage-advanced-transcription-tools-within-microsoft-word-to-boost-productivity/"><u>[Updated] Leverage Advanced Transcription Tools Within Microsoft Word to Boost Productivity</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-navigate-motion-sickness-in-virtual-reality-with-ease/"><u>2024 Approved Navigate Motion Sickness in Virtual Reality with Ease</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-samsung-galaxy-a54-5g-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Samsung Galaxy A54 5G? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/explore-your-memories-with-icloud-discovering-four-methods-to-browse-icloud-photos/"><u>Explore Your Memories with iCloud: Discovering Four Methods to Browse iCloud Photos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/get-into-a-friends-live-showcase-effortlessly/"><u>Get Into a Friend's Live Showcase Effortlessly</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/guide-to-flawless-transition-of-phone-cookies-from-device-to-social-media/"><u>Guide to Flawless Transition of Phone' Cookies From Device to Social Media</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-rapid-tiktok-video-loading-a-guide/"><u>In 2024, Rapid TikTok Video Loading A Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-streamlining-the-process-simplified-setup-of-tiktok-livestreams-from-desktop/"><u>In 2024, Streamlining the Process Simplified Setup of TikTok Livestreams From Desktop</u></a></li>
+<li><a href="https://win-news.techidaily.com/perfektes-kopieren-von-windows-10-auf-eine-kompaktere-solid-state-festplatte-die-beste-methode/"><u>Perfektes Kopieren Von Windows 10 Auf Eine Kompaktere Solid-State-Festplatte: Die Beste Methode</u></a></li>
+<li><a href="https://win11.techidaily.com/streamline-fun-best-free-media-tools-for-pcs/"><u>Streamline Fun: Best Free Media Tools for PCs</u></a></li>
 </ul></div>
 

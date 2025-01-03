@@ -1,7 +1,7 @@
 ---
 title: Mastering PC Building Basics at Tom's Hardware Academy
-date: 2024-12-22T23:13:22.814Z
-updated: 2024-12-24T18:00:27.597Z
+date: 2025-01-01T16:08:44.192Z
+updated: 2025-01-03T16:42:45.416Z
 tags:
   - desktop
 categories:
@@ -42,7 +42,7 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
  We caught a first glimpse of the AtomMan X7 Ti[at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) when it was showcased with other interesting new computers like the Minisforum HX200G, Mini Workstation MS-01, and the[V3 tablet](https://www.tomshardware.com/tablets/minisforum-v3-tablet-arrives-the-worlds-first-amd-ryzen-7-8840u-powered-surface-clone) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -68,21 +68,20 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-carving-a-path-individuality-in-the-face-of-tiktok-influencers/"><u>[New] 2024 Approved Carving a Path Individuality in the Face of TikTok Influencers</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-elevate-your-tiktok-game-expert-mac-video-editing-guide/"><u>[New] 2024 Approved Elevate Your TikTok Game Expert Mac Video Editing Guide</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-how-to-make-tiktok-dance-on-mac/"><u>[New] 2024 Approved How to Make TikTok Dance on Mac</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-making-the-most-of-siri-voice-interactions-for-tiktok-content/"><u>[New] 2024 Approved Making the Most of Siri Voice Interactions for TikTok Content</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-must-buy-tiktok-goodies-top-30-from-amazon/"><u>[New] 2024 Approved Must-Buy TikTok Goodies – Top 30 From Amazon</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-amplify-video-speeds-the-ultimate-tiktok-guide-for-2024/"><u>[New] Amplify Video Speeds The Ultimate TikTok Guide for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-amplify-your-iphones-secrets-to-great-silhouettes/"><u>[Updated] Amplify Your iPhones Secrets to Great Silhouettes</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-asmr-unraveled-enhancing-mental-wellness/"><u>[Updated] ASMR Unraveled Enhancing Mental Wellness</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-the-instagram-live-guide-conversation-tools-unveiled-for-2024/"><u>[Updated] The Instagram Live Guide Conversation Tools Unveiled for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-virtual-playground-the-ultimate-samsung-gear-vr-list/"><u>[Updated] Virtual Playground The Ultimate Samsung Gear VR List</u></a></li>
-<li><a href="https://win-blog.techidaily.com/cyberpunk-2077-performance-issues-resolved-enjoy-smooth-frame-rates/"><u>Cyberpunk 2077 Performance Issues Resolved: Enjoy Smooth Frame Rates!</u></a></li>
-<li><a href="https://program-issues.techidaily.com/expert-tips-getting-farming-simulator-ampler-to-start-properly/"><u>Expert Tips: Getting Farming Simulator Ampler to Start Properly</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-demystifying-the-mechanics-of-high-impact-tiktok-plays/"><u>In 2024, Demystifying the Mechanics of High-Impact TikTok Plays</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/pro-level-snapshot-techniques-maximizing-zoomed-photo-and-video-experience/"><u>Pro-Level Snapshot Techniques Maximizing Zoomed Photo and Video Experience</u></a></li>
-<li><a href="https://driver-error.techidaily.com/troubleshooting-guide-restoring-functionality-of-your-non-responsive-hp-wireless-keyboard/"><u>Troubleshooting Guide: Restoring Functionality of Your Non-Responsive HP Wireless Keyboard</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/unlock-fresh-beats-premium-karaoke-songs-for-0217-dive-into-this-weeks-top-20-chart-topping-hits/"><u>Unlock Fresh Beats: Premium Karaoke Songs for 02/17 - Dive Into This Week's Top 20 Chart-Topping Hits!</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-crafting-captivating-tiktok-content-from-anime-stories/"><u>[New] In 2024, Crafting Captivating TikTok Content From Anime Stories</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-detailed-process-for-creating-professional-voice-recordings/"><u>[Updated] 2024 Approved Detailed Process for Creating Professional Voice Recordings</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-harmonizing-in-tiktoks-duo-videos-for-2024/"><u>[Updated] Harmonizing in TikTok's Duo Videos for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-15-newest-tiktok-trends-you-need-to-pay-attention-to/"><u>[Updated] In 2024, 15 Newest TikTok Trends You Need to Pay Attention To</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-streamlining-content-creation-using-siri-in-tiktok/"><u>[Updated] Streamlining Content Creation Using Siri in TikTok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unlocking-tiktok-the-ultimate-guide-to-joining-lives/"><u>[Updated] Unlocking TikTok The Ultimate Guide to Joining Lives</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-curate-a-perfect-playlist-on-youtube-a-step-by-step-guide/"><u>2024 Approved Curate a Perfect Playlist on YouTube A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-transcoding-ttml-and-ssa-into-easy-to-use-srt-format/"><u>2024 Approved Transcoding TTML & SSA Into Easy-to-Use SRT Format</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/comparing-features-free-vs-premium-mpeg-video-converter-factory-against-factory-pro/"><u>Comparing Features: Free vs Premium - MPEG Video Converter Factory Against Factory Pro</u></a></li>
+<li><a href="https://video-capture.techidaily.com/experience-professional-video-calling-explore-the-top-5-devices/"><u>Experience Professional Video Calling - Explore The Top 5 Devices</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-infinix-hot-30i-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Infinix Hot 30i Location by Number | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-x-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone X Without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Tecno Spark 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-and-simple-adding-youtube-songs-to-imovie-edit/"><u>Quick and Simple Adding Youtube Songs to iMovie Edit</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-art-of-captioning-on-tiktok-5-essential-insights-for-enhanced-engagement/"><u>The Art of Captioning on TikTok 5 Essential Insights for Enhanced Engagement</u></a></li>
 </ul></div>
 

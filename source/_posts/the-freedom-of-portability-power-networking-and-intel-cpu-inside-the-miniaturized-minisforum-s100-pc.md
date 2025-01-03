@@ -1,7 +1,7 @@
 ---
 title: "The Freedom of Portability: Power, Networking, & Intel CPU Inside the Miniaturized Minisforum S100 PC"
-date: 2024-12-18T05:31:26.271Z
-updated: 2024-12-24T17:33:04.915Z
+date: 2024-12-27T16:01:55.694Z
+updated: 2025-01-03T18:17:44.341Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,19 +76,18 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-guidance.techidaily.com/new-lightning-fast-photo-tweaks-in-windows-11/"><u>[New] Lightning-Fast Photo Tweaks in Windows 11</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-streamline-operations-ranking-the-top-8-facebook-task-managers/"><u>[New] Streamline Operations Ranking the Top 8 Facebook Task Managers</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-8-must-have-tiktok-tools-to-boost-your-growth/"><u>[Updated] 8 Must-Have TikTok Tools to Boost Your Growth</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-dont-skip-this-weeks-hot-tiktok-tests-for-2024/"><u>[Updated] Don't Skip This Week's Hot TikTok Tests for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-how-to-dominate-tiktoks-trending-topics-for-more-engagement/"><u>[Updated] In 2024, How to Dominate TikTok's Trending Topics for More Engagement</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-social-media-showdown-is-likee-set-to-dominate-over-tiktok/"><u>[Updated] Social Media Showdown Is Likee Set to Dominate Over TikTok?</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-step-into-the-stream-a-guide-to-roku-and-facebook-live-broadcasts-for-2024/"><u>[Updated] Step Into the Stream A Guide to ROKU & Facebook Live Broadcasts for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-tap-into-the-quickest-way-for-downloading-musically-videos/"><u>[Updated] Tap Into the Quickest Way for Downloading Musical.ly Videos</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-elevate-your-profile-picture-game-with-these-high-end-online-services/"><u>2024 Approved Elevate Your Profile Picture Game with These High-End Online Services</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-infinix-hot-40i-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Infinix Hot 40i</u></a></li>
-<li><a href="https://howto.techidaily.com/calls-on-tecno-pova-6-pro-5g-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Tecno Pova 6 Pro 5G Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/free-online-converter-turn-mp4-videos-into-3gp-format-using-movavi/"><u>Free Online Converter: Turn MP4 Videos Into .3Gp Format Using Movavi</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/geekom-mega-mini-g1-the-innovative-fish-tank-pc-with-tecno-xs-core-i9-13900h-cpu-and-nvidia-rtx-cu4060-graphics/"><u>GeekOm Mega Mini G1 - The Innovative Fish-Tank PC with Tecno X's Core I9-13900H CPU & NVIDIA RTX Cu4060 Graphics</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-leading-face-transformation-apps-for-iphones-and-androids/"><u>In 2024, Leading Face Transformation Apps for iPhones & Androids</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-step-up-and-snap-top-10-must-try-viral-tiktok-stunts/"><u>[New] 2024 Approved Step Up and Snap Top 10 Must-Try Viral TikTok Stunts</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-becoming-an-active-participant-in-tiktok-lives-for-2024/"><u>[New] Becoming an Active Participant in TikTok Lives for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-compreenas-comprehensive-walkthrough-for-creating-a-unified-skype-chat-room-accessible-by-users-of-different-operating-systems/"><u>[New] In 2024, Compreenas Comprehensive Walkthrough for Creating a Unified Skype Chat Room Accessible by Users of Different Operating Systems</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-reverse-an-accidental-tiktok-reload-quick-guide-for-2024/"><u>[New] Reverse an Accidental TikTok Reload – Quick Guide for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-startup-strategies-for-making-money-on-periscope/"><u>2024 Approved Startup Strategies for Making Money on Periscope</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/discovering-your-vehicles-secret-audio-access-codes-a-step-by-step-guide/"><u>Discovering Your Vehicle's Secret Audio Access Codes: A Step-by-Step Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/friendly-reminder-how-to-chill-at-someones-tiktok-party/"><u>Friendly Reminder How To Chill at Someone's TikTok Party</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-poco-x6-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-crafting-the-perfect-mobile-chime-how-to-download-and-personalize-whatsapp-tones-for-iphonesandroids/"><u>In 2024, Crafting the Perfect Mobile Chime How to Download & Personalize WhatsApp Tones for iPhones/Androids</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/1722654633592-mastering-gaming-comfort-with-the-xbox-one-elite-series-2-reviewed-a-legendary-choice/"><u>Mastering Gaming Comfort with the Xbox One Elite Series 2 Reviewed - A Legendary Choice</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/mastering-storytelling-anime-influencers-on-tiktok-for-2024/"><u>Mastering Storytelling Anime Influencers on TikTok for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/stabilizing-your-gopro-footage-a-step-by-step-guide/"><u>Stabilizing Your GoPro Footage A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-8-innovative-ai-art-creations-with-dall-e-3-unleashing-creativity/"><u>Top 8 Innovative AI Art Creations with DALL-E 3: Unleashing Creativity</u></a></li>
 </ul></div>
 

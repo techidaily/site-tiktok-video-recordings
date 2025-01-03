@@ -1,7 +1,7 @@
 ---
 title: Tech Giant HP Enterprise Takes China's Inspur to Court for Patent Breach While Maintaining U.S. Presence
-date: 2024-12-21T18:23:15.631Z
-updated: 2024-12-25T08:58:25.563Z
+date: 2025-01-01T16:45:05.047Z
+updated: 2025-01-03T16:21:29.815Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,22 +76,20 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-earn-on-tiktok-explore-8-effective-money-making-techniques/"><u>[New] 2024 Approved Earn on TikTok Explore 8 Effective Money-Making Techniques</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-live-choreo-streaming-on-shouqi-media/"><u>[New] 2024 Approved Live Choreo Streaming on Shouqi Media</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-boost-your-finances-with-these-8-essential-tiktok-strategies-for-2024/"><u>[New] Boost Your Finances with These 8 Essential TikTok Strategies for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-effortlessly-share-window-movie-creations-with-vimeo/"><u>[New] In 2024, Effortlessly Share Window Movie Creations with Vimeo</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-your-guide-to-stellar-igtv-talent/"><u>[Updated] 2024 Approved Your Guide to Stellar IGTV Talent</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-stunning-close-ups-and-macros-with-iphones-advanced-lenses/"><u>[Updated] Stunning Close-Ups & Macros with iPhone's Advanced Lenses</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-top-10-escape-room-games/"><u>[Updated] Top 10 Escape Room Games</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-a-friendly-tour-how-to-join-and-chill-with-peers-live-on-tiktok/"><u>2024 Approved A Friendly Tour How To Join and Chill with Peers Live on TikTok</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discover-the-ultimate-selection-of-no-cost-driver-updaters-for-july-2024/"><u>Discover the Ultimate Selection of No-Cost Driver Updaters for July 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/dive-right-in-the-art-of-entering-a-tiktok-stream-for-2024/"><u>Dive Right In The Art of Entering a TikTok Stream for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/expert-tiktok-editing-simplified-methods-for-bold-video-makeovers-for-2024/"><u>Expert TikTok Editing Simplified Methods for Bold Video Makeovers for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/flipping-the-script-how-to-revamp-your-tiktok-username-effectively/"><u>Flipping the Script How to Revamp Your TikTok Username Effectively</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oneplus-ace-2-pro-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock OnePlus Ace 2 Pro Phone Password Without Factory Reset?</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-strategies-to-skyrocket-your-popularity-on-tiktok/"><u>In 2024, Strategies to Skyrocket Your Popularity on TikTok</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-iphone-7-data-from-ios-itunes-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover iPhone 7 Data From iOS iTunes | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-6-recommended-websites-offering-complimentary-childrens-films/"><u>Top 6 Recommended Websites Offering Complimentary Children's Films</u></a></li>
-<li><a href="https://discover-advanced.techidaily.com/unveiling-the-perks-why-choose-yl-software-for-optimal-tech-solutions/"><u>Unveiling the Perks: Why Choose YL Software for Optimal Tech Solutions</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-navigating-the-new-age-of-content-creation-tiktoks-money-potential/"><u>[New] 2024 Approved Navigating the New Age of Content Creation TikTok's Money Potential</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-tailoring-your-streamlabs-obs-experience-for-2024/"><u>[New] Tailoring Your Streamlabs OBS Experience for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-quick-fixes-to-fasten-tiktok-video-speed/"><u>[Updated] 2024 Approved Quick Fixes to Fasten TikTok Video Speed</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-crafting-an-engaging-tiktok-closing-credits-for-2024/"><u>[Updated] Crafting An Engaging TikTok Closing Credits for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-cross-into-the-world-of-shared-tiktok-experiences-for-2024/"><u>[Updated] Cross Into the World of Shared TikTok Experiences for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-unlocking-impressive-hdr-potential-with-our-tutorial/"><u>[Updated] In 2024, Unlocking Impressive HDR Potential with Our Tutorial</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-iphone-photography-boosted-by-ios-11-features-for-2024/"><u>[Updated] IPhone Photography Boosted by iOS 11 Features for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-your-potential-multiplatform-studio-use-for-profit-for-2024/"><u>[Updated] Unlocking Your Potential Multiplatform Studio Use for Profit for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-ultimate-guide-to-exceptional-tiktok-intro-videos-mac/"><u>2024 Approved The Ultimate Guide to Exceptional TikTok Intro Videos (Mac)</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-6-plus-to-others-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 6 Plus To Others devices? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-discover-the-hottest-tiktok-reading-trends/"><u>In 2024, Discover the Hottest TikTok Reading Trends</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-smile-smarter-crafting-text-memes-like-a-pro/"><u>In 2024, Smile Smarter Crafting Text Memes Like a Pro</u></a></li>
+<li><a href="https://win-able.techidaily.com/mafia-definitive-edition-uncovered-factors-behind-its-delay/"><u>Mafia: Definitive Edition - Uncovered Factors Behind Its Delay</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/step-by-step-altering-your-tiktok-persona-for-maximum-impact/"><u>Step-by-Step Altering Your TikTok Persona for Maximum Impact</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unlocking-financial-gains-with-these-8-tiktok-tricks/"><u>Unlocking Financial Gains with These 8 TikTok Tricks</u></a></li>
 </ul></div>
 

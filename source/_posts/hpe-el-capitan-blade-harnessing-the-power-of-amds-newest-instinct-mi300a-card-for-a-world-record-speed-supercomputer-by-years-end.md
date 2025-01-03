@@ -1,7 +1,7 @@
 ---
 title: "HPE El Capitan Blade: Harnessing the Power of AMD's Newest Instinct MI300A Card for a World Record Speed Supercomputer by Year's End"
-date: 2024-12-18T21:13:46.497Z
-updated: 2024-12-25T08:13:24.030Z
+date: 2024-12-30T18:22:00.285Z
+updated: 2025-01-03T17:45:48.933Z
 tags:
   - desktop
 categories:
@@ -55,7 +55,7 @@ __Ayaneo Retro Mini PC AM01 Specification__
  That said, if Ayaneo's successful[Indiegogo campaign](https://www.indiegogo.com/projects/ayaneo-retro-mini-pc-creator-of-mini-pc-2-0-era#/) proved anything, it's that users are willing to pay for a fun retro design despite potential trade-offs —[nostalgia is always a great way](https://www.tomshardware.com/peripherals/mechanical-keyboards/grab-this-cool-retro-console-inspired-keyboard-for-just-dollar83) to get people to buy something.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -81,15 +81,18 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-from-behind-the-screen-to-in-front-masterful-guide-on-tiktok-username-transformation/"><u>[New] 2024 Approved From Behind the Screen to In Front Masterful Guide on TikTok Username Transformation</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-a-beginners-guide-to-using-siri-in-your-tiktok-videos-for-2024/"><u>[New] A Beginner's Guide to Using Siri in Your TikTok Videos for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-gopro-studio-tips-the-pathway-to-impressive-time-lapse-video-for-2024/"><u>[New] GoPro Studio Tips The Pathway to Impressive Time Lapse Video for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/amplify-tiktok-fame-in-just-a-minute-crucial-steps-unveiled/"><u>Amplify TikTok Fame in Just a Minute - Crucial Steps Unveiled</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/engaging-with-jujutsu-kaisen-fans-through-tiktok-challenges-for-2024/"><u>Engaging with Jujutsu Kaisen Fans Through TikTok Challenges for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-c110-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on C110</u></a></li>
-<li><a href="https://driver-install.techidaily.com/increase-operating-system-stability-with-e1659fwv-update/"><u>Increase Operating System Stability with E1659FWV Update</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/precision-scheduling-for-peak-performance-a-guide-to-slack-filmora-meetings/"><u>Precision Scheduling for Peak Performance A Guide to Slack-Filmora Meetings</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/unbelievable-discovery-communicating-with-chatgpt/"><u>Unbelievable Discovery: Communicating With ChatGPT</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/uncovering-stardews-depths-with-ginger-island-adventures/"><u>Uncovering Stardew's Depths with Ginger Island Adventures</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ace-in-the-halls-boosting-youtube-traffic-for-2024/"><u>[Updated] Ace in the Halls Boosting YouTube Traffic for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-whos-leading-the-charge-in-tiktok-gaming/"><u>[Updated] Who's Leading the Charge in TikTok Gaming?</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-transforming-views-into-audience-with-effective-fb-videos/"><u>2024 Approved Transforming Views Into Audience with Effective FB Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/constructing-an-engaging-tiktok-aftermath/"><u>Constructing an Engaging TikTok Aftermath</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/expert-analysis-on-the-fujitsu-scansnap-ix1400-your-reliable-partner-in-home-and-small-business-scanning-solutions/"><u>Expert Analysis on the Fujitsu ScanSnap iX1400 - Your Reliable Partner in Home and Small Business Scanning Solutions</u></a></li>
+<li><a href="https://win-docs.techidaily.com/guide-etape-par-etape-pour-redecouvrir-loption-reinitialiser-ce-pc-sur-votre-systeme-windows/"><u>Guide Étape Par Étape Pour Redécouvrir L'option 'Réinitialiser Ce PC' Sur Votre Système Windows.</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/how-to-save-snapchat-videos-with-apps-on-android-and-mac/"><u>How to Save Snapchat Videos with Apps on Android and Mac</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-xiaomi-redmi-k70-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Xiaomi Redmi K70 via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-oppo-find-x7-ultra-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Oppo Find X7 Ultra? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-quotable-moments-50plus-top-tiktok-inspirational-lyrics/"><u>In 2024, Quotable Moments 50+ Top TikTok Inspirational Lyrics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-seamless-screen-stretch-cycle-youtube-on-television-display/"><u>In 2024, Seamless Screen Stretch Cycle YouTube on Television Display</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-transforming-tiktok-to-pop-with-top-gif-tools/"><u>In 2024, Transforming TikTok to Pop with Top GIF Tools</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/step-by-step-instructions-for-using-telegram-online-professionally-for-2024/"><u>Step-By-Step Instructions For Using Telegram Online Professionally for 2024</u></a></li>
 </ul></div>
 
