@@ -1,7 +1,7 @@
 ---
 title: "HPE Litigates Against China's Inspur: Patent Violation Allegations Overshadowed by Ongoing Sanction-Defying Business Activities in the U.S."
-date: 2024-12-28T18:06:09.517Z
-updated: 2025-01-03T17:44:41.170Z
+date: 2025-01-04T20:26:38.095Z
+updated: 2025-01-09T22:14:24.442Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,18 +60,22 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-tiktoks-hidden-treasures-grab-em-all-for-free/"><u>[New] 2024 Approved TikTok's Hidden Treasures Grab 'Em All for Free</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-make-stunning-tiktok-videos-using-these-templates/"><u>[New] In 2024, Make Stunning TikTok Videos Using These Templates</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-the-complete-zoomers-handbook-for-captivating-video-and-audio-content/"><u>[Updated] In 2024, The Complete Zoomer's Handbook for Captivating Video and Audio Content</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-unlocking-tiktok-the-ultimate-guide-to-joining-lives/"><u>[Updated] In 2024, Unlocking TikTok The Ultimate Guide to Joining Lives</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-skype-soundtrack-hub-finding-the-right-tones-online/"><u>[Updated] Skype Soundtrack Hub Finding the Right Tones Online</u></a></li>
-<li><a href="https://solve-manuals.techidaily.com/mnvme-ssdwindows-112/"><u>「M.nvme SSDに素早くWindows 11をセットアップする効果的な2通りの方法」</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-dual-performances-the-new-social-media-art/"><u>In 2024, Dual Performances The New Social Media Art</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/inside-the-chip-exploring-hardware-innovations-at-toms-review-hub/"><u>Inside the Chip: Exploring Hardware Innovations at Tom’s Review Hub</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/leading-electronic-notetaking-solutions-evaluated-find-your-perfect-match-based-on-expert-insights/"><u>Leading Electronic Notetaking Solutions Evaluated: Find Your Perfect Match Based on Expert Insights</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/tech-tutorial-exporting-and-storing-your-snaps-safely/"><u>Tech Tutorial Exporting and Storing Your Snaps Safely</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/the-newest-viral-content-on-tiktok-today-for-2024/"><u>The Newest Viral Content on TikTok Today for 2024</u></a></li>
-<li><a href="https://techidaily.com/update-hardware-drivers-with-device-manager-in-windows-1110-by-drivereasy-guide/"><u>Update hardware drivers with Device Manager in Windows 11/10</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-dual-approaches-to-audio-fades-in-final-cut-pro-a-step-by-step-guide/"><u>Updated 2024 Approved Dual Approaches to Audio Fades in Final Cut Pro A Step-by-Step Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-copying-safely-on-tiktok-a-2023-guide-to-rights-checks-for-2024/"><u>[New] Copying Safely on TikTok A 2023 Guide to Rights Checks for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-crafting-shareable-tiktoks-with-50plus-influential-phrases-for-2024/"><u>[New] Crafting Shareable TikToks with 50+ Influential Phrases for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/njoy-endless-creativity-discover-the-best-in-cheap-online-video-downloading-for-2024/"><u>[New] Enjoy Endless Creativity Discover the Best in Cheap, Online Video Downloading for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-gamings-new-leaders-1-ranked-4k-laptops/"><u>[New] Gaming's New Leaders #1 Ranked 4K Laptops</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-country-rhythms-for-peaceful-evenings-top-20-tiktok-tracks/"><u>[New] In 2024, Country Rhythms for Peaceful Evenings Top 20 TikTok Tracks</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-navigating-the-new-wave-of-tiktok-culture/"><u>[New] In 2024, Navigating the New Wave of TikTok Culture</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-optimizing-video-output-the-adobe-presenter-way/"><u>[Updated] In 2024, Optimizing Video Output The Adobe Presenter Way</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-windows-10-and-zoom-a-comprehensive-guide-to-successful-use/"><u>[Updated] In 2024, Windows 10 and Zoom A Comprehensive Guide to Successful Use</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/a-friendly-tour-how-to-join-and-chill-with-peers-live-on-tiktok-for-2024/"><u>A Friendly Tour How To Join and Chill with Peers Live on TikTok for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/buying-smart-key-accessories-for-dynamic-cinematography/"><u>Buying Smart Key Accessories for Dynamic Cinematography</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Oppo A79 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-speedy-sonic-tuning-devices-index-pc-tablet/"><u>In 2024, Speedy Sonic Tuning Devices Index (PC, Tablet)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/mastering-the-art-of-making-and-tweaking-multi-snap-videos/"><u>Mastering the Art of Making & Tweaking Multi-Snap Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/navigating-social-sharing-pining-on-snapchat/"><u>Navigating Social Sharing Pining on Snapchat</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/preventing-misinformation-openais-new-ai-scrutiny-tool/"><u>Preventing Misinformation: OpenAI's New AI Scrutiny Tool</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/riconversione-gratuita-di-file-wma-in-formato-aac-online-con-movavi/"><u>Riconversione Gratuita Di File WMA in Formato AAC Online Con Movavi</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-speedy-route-to-collecting-cutting-edge-tiktoks-for-2024/"><u>The Speedy Route to Collecting Cutting-Edge TikToks for 2024</u></a></li>
 </ul></div>
 

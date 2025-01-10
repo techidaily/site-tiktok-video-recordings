@@ -1,7 +1,7 @@
 ---
 title: "HPE El Capitan Blade: Harnessing the Power of AMD's Newest Instinct MI300A Card for a World Record Speed Supercomputer by Year's End"
-date: 2024-12-30T18:22:00.285Z
-updated: 2025-01-03T17:45:48.933Z
+date: 2025-01-02T18:23:11.295Z
+updated: 2025-01-10T02:15:24.062Z
 tags:
   - desktop
 categories:
@@ -55,7 +55,7 @@ __Ayaneo Retro Mini PC AM01 Specification__
  That said, if Ayaneo's successful[Indiegogo campaign](https://www.indiegogo.com/projects/ayaneo-retro-mini-pc-creator-of-mini-pc-2-0-era#/) proved anything, it's that users are willing to pay for a fun retro design despite potential trade-offs —[nostalgia is always a great way](https://www.tomshardware.com/peripherals/mechanical-keyboards/grab-this-cool-retro-console-inspired-keyboard-for-just-dollar83) to get people to buy something.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -81,18 +81,18 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-ace-in-the-halls-boosting-youtube-traffic-for-2024/"><u>[Updated] Ace in the Halls Boosting YouTube Traffic for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-whos-leading-the-charge-in-tiktok-gaming/"><u>[Updated] Who's Leading the Charge in TikTok Gaming?</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-transforming-views-into-audience-with-effective-fb-videos/"><u>2024 Approved Transforming Views Into Audience with Effective FB Videos</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/constructing-an-engaging-tiktok-aftermath/"><u>Constructing an Engaging TikTok Aftermath</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/expert-analysis-on-the-fujitsu-scansnap-ix1400-your-reliable-partner-in-home-and-small-business-scanning-solutions/"><u>Expert Analysis on the Fujitsu ScanSnap iX1400 - Your Reliable Partner in Home and Small Business Scanning Solutions</u></a></li>
-<li><a href="https://win-docs.techidaily.com/guide-etape-par-etape-pour-redecouvrir-loption-reinitialiser-ce-pc-sur-votre-systeme-windows/"><u>Guide Étape Par Étape Pour Redécouvrir L'option 'Réinitialiser Ce PC' Sur Votre Système Windows.</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/how-to-save-snapchat-videos-with-apps-on-android-and-mac/"><u>How to Save Snapchat Videos with Apps on Android and Mac</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-best-3-software-to-transfer-files-tofrom-your-xiaomi-redmi-k70-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Best 3 Software to Transfer Files to/from Your Xiaomi Redmi K70 via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-oppo-find-x7-ultra-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Oppo Find X7 Ultra? Look No Further | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-quotable-moments-50plus-top-tiktok-inspirational-lyrics/"><u>In 2024, Quotable Moments 50+ Top TikTok Inspirational Lyrics</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-seamless-screen-stretch-cycle-youtube-on-television-display/"><u>In 2024, Seamless Screen Stretch Cycle YouTube on Television Display</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-transforming-tiktok-to-pop-with-top-gif-tools/"><u>In 2024, Transforming TikTok to Pop with Top GIF Tools</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/step-by-step-instructions-for-using-telegram-online-professionally-for-2024/"><u>Step-By-Step Instructions For Using Telegram Online Professionally for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-explore-20-most-shared-rap-tracks-on-social-media-for-2024/"><u>[New] Explore 20 Most Shared Rap Tracks on Social Media for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-mac-users-guide-to-stellar-tiktok-beginnings-for-2024/"><u>[New] Mac Users' Guide to Stellar TikTok Beginnings for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-tips-for-supercharging-tiktok-videos-with-professional-voiceovers/"><u>[Updated] In 2024, Tips for Supercharging TikTok Videos with Professional Voiceovers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-innovative-hubs-of-affordable-visual-content-sources-for-2024/"><u>[Updated] Innovative Hubs of Affordable Visual Content Sources for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-unlocking-the-power-of-social-medias-fb-covers-for-2024/"><u>[Updated] Unlocking the Power of Social Media's FB Covers for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-unveiling-hidden-gems-essential-tricks-for-win11/"><u>[Updated] Unveiling Hidden Gems Essential Tricks for Win11</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-top-8-youtube-images-that-captivate-and-convert-viewers/"><u>2024 Approved Top 8 YouTube Images That Captivate and Convert Viewers</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/l-jests-crafting-top-humorous-content-ideas-for-youtubers-for-2024/"><u>Joyful Jests Crafting Top Humorous Content Ideas for YouTubers for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-lava-yuva-2-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Lava Yuva 2 and Browser | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/seamless-computer-based-tiktok-live-broadcast-setup/"><u>Seamless Computer-Based TikTok LIVE Broadcast Setup</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-music-from-infinix-hot-40i-by-fonelab-android-recover-music/"><u>Undelete lost music from Infinix Hot 40i</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unveiling-the-cutting-edge-technology-of-apples-latest-ipad-generation/"><u>Unveiling the Cutting-Edge Technology of Apple's Latest iPad Generation</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/1723016629268-windows-7-sound-trouble-heres-how-to-get-it-working-again/"><u>Windows 7 Sound Trouble? Here's How to Get It Working Again</u></a></li>
 </ul></div>
 

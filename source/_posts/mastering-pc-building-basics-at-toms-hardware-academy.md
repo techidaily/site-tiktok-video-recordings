@@ -1,7 +1,7 @@
 ---
 title: Mastering PC Building Basics at Tom's Hardware Academy
-date: 2025-01-01T16:08:44.192Z
-updated: 2025-01-03T16:42:45.416Z
+date: 2025-01-03T02:09:08.060Z
+updated: 2025-01-09T19:53:05.805Z
 tags:
   - desktop
 categories:
@@ -42,7 +42,7 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
  We caught a first glimpse of the AtomMan X7 Ti[at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) when it was showcased with other interesting new computers like the Minisforum HX200G, Mini Workstation MS-01, and the[V3 tablet](https://www.tomshardware.com/tablets/minisforum-v3-tablet-arrives-the-worlds-first-amd-ryzen-7-8840u-powered-surface-clone) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -68,20 +68,17 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-crafting-captivating-tiktok-content-from-anime-stories/"><u>[New] In 2024, Crafting Captivating TikTok Content From Anime Stories</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-2024-approved-detailed-process-for-creating-professional-voice-recordings/"><u>[Updated] 2024 Approved Detailed Process for Creating Professional Voice Recordings</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-harmonizing-in-tiktoks-duo-videos-for-2024/"><u>[Updated] Harmonizing in TikTok's Duo Videos for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-15-newest-tiktok-trends-you-need-to-pay-attention-to/"><u>[Updated] In 2024, 15 Newest TikTok Trends You Need to Pay Attention To</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-streamlining-content-creation-using-siri-in-tiktok/"><u>[Updated] Streamlining Content Creation Using Siri in TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unlocking-tiktok-the-ultimate-guide-to-joining-lives/"><u>[Updated] Unlocking TikTok The Ultimate Guide to Joining Lives</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-curate-a-perfect-playlist-on-youtube-a-step-by-step-guide/"><u>2024 Approved Curate a Perfect Playlist on YouTube A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-transcoding-ttml-and-ssa-into-easy-to-use-srt-format/"><u>2024 Approved Transcoding TTML & SSA Into Easy-to-Use SRT Format</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/comparing-features-free-vs-premium-mpeg-video-converter-factory-against-factory-pro/"><u>Comparing Features: Free vs Premium - MPEG Video Converter Factory Against Factory Pro</u></a></li>
-<li><a href="https://video-capture.techidaily.com/experience-professional-video-calling-explore-the-top-5-devices/"><u>Experience Professional Video Calling - Explore The Top 5 Devices</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-infinix-hot-30i-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Infinix Hot 30i Location by Number | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-x-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone X Without Data Loss? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-tecno-spark-10-pro-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Tecno Spark 10 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-and-simple-adding-youtube-songs-to-imovie-edit/"><u>Quick and Simple Adding Youtube Songs to iMovie Edit</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/the-art-of-captioning-on-tiktok-5-essential-insights-for-enhanced-engagement/"><u>The Art of Captioning on TikTok 5 Essential Insights for Enhanced Engagement</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-from-still-screens-to-mp3-beats-insta-video-tips/"><u>[New] 2024 Approved From Still Screens to MP3 Beats - Insta Video Tips</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-the-casual-entrants-handbook-for-tiktok-lives/"><u>[Updated] In 2024, The Casual Entrant's Handbook for TikTok Lives</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-generating-a-timeless-tiktok-outro-feature/"><u>2024 Approved Generating a Timeless TikTok Outro Feature</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-orchestrating-a-personalized-tiktok-signoff/"><u>2024 Approved Orchestrating A Personalized TikTok Signoff</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-realme-10t-5g-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On Oppo Find N3? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/identifying-7-red-flags-in-system-windows-operations/"><u>Identifying 7 Red Flags in System Windows Operations</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/innovating-with-jujutsu-kaisen-characters-on-tiktok/"><u>Innovating with Jujutsu Kaisen Characters on TikTok</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mystery-behind-instagrams-video-rotation/"><u>Mystery Behind Instagram's Video Rotation</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/snapchat-marketing-mastery-earnings-edition/"><u>Snapchat Marketing Mastery Earnings Edition</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/swipe-right-for-music-top-10-fb-vids-today/"><u>Swipe Right for Music Top 10 FB Vids Today</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210380528-9781737410652-the-fun-of-growing-forever/"><u>The Fun of Growing Forever | Free Book</u></a></li>
 </ul></div>
 

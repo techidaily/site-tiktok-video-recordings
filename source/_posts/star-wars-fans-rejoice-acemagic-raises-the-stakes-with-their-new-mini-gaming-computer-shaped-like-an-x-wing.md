@@ -1,7 +1,7 @@
 ---
 title: "Star Wars Fans Rejoice: AceMagic Raises the Stakes with Their New Mini Gaming Computer Shaped Like an X-Wing"
-date: 2024-12-31T16:49:29.032Z
-updated: 2025-01-03T17:00:05.532Z
+date: 2025-01-04T19:20:39.961Z
+updated: 2025-01-09T17:36:06.946Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,17 +62,15 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-unlock-endless-entertainment-with-tiktok-on-your-macbook/"><u>[New] 2024 Approved Unlock Endless Entertainment with TikTok on Your MacBook</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-accelerating-videos-in-tiktok-quick-tips/"><u>[New] Accelerating Videos in TikTok Quick Tips</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-seamless-tiktok-video-uploads-with-chrome-android-ios/"><u>[New] Seamless TikTok Video Uploads with Chrome, Android, iOS</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-ultimate-top-10-tools-for-professional-tiktok-editors-pc-for-2024/"><u>[New] Ultimate Top 10 Tools for Professional TikTok Editors (PC) for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-premier-online-entrepreneurs-for-2024/"><u>[Updated] Premier Online Entrepreneurs for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/becoming-snapstreak-savvy-tips-for-uninterrupted-connection/"><u>Becoming Snapstreak Savvy Tips for Uninterrupted Connection</u></a></li>
-<li><a href="https://extra-information.techidaily.com/empower-your-journey-through-cinemas-best-10-titles/"><u>Empower Your Journey Through Cinema's Best 10 Titles</u></a></li>
-<li><a href="https://media-tips.techidaily.com/1723620261592-essential-guide-discover-the-ultimate-6-gif-to-video-converter-applications-for-perfect-transitions/"><u>Essential Guide: Discover the Ultimate 6 GIF-to-Video Converter Applications for Perfect Transitions</u></a></li>
-<li><a href="https://windows11.techidaily.com/fixing-non-starting-windows-indexing-service/"><u>Fixing Non-Starting Windows Indexing Service</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-xs-max-without-swiping-up-6-ways-by-drfone-ios/"><u>In 2024, How To Unlock iPhone XS Max Without Swiping Up? 6 Ways</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/lustrous-frameworks-structuring-illumination-in-film-for-2024/"><u>Lustrous Frameworks Structuring Illumination in Film for 2024</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/simple-guide-transforming-your-dvds-into-avi-files-without-hitch/"><u>Simple Guide: Transforming Your DVDs Into AVI Files Without Hitch</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-trending-beats-navigating-the-world-of-viral-tiktok-raps/"><u>[New] In 2024, Trending Beats Navigating the World of Viral TikTok Raps</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-live-participation-guesting-on-tiktoks-for-2024/"><u>[New] Mastering Live Participation Guesting on TikToks for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-perfect-peace-mastering-the-art-of-muting-individuals-on-gomeet-for-2024/"><u>[New] Perfect Peace Mastering the Art of Muting Individuals on GoMeet for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-easy-steps-to-dance-and-unwind-with-these-top-20-songs-country-edition-for-2024/"><u>[Updated] Easy Steps to Dance & Unwind with These Top 20 Songs (Country Edition) for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-high-fidelity-portals-to-ps3-gaming-on-pcs/"><u>[Updated] High-Fidelity Portals to Ps3 Gaming on PCs</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/dialing-up-the-drama-captivating-tiktok-intros-via-mac-for-2024/"><u>Dialing Up the Drama Captivating TikTok Intros via Mac for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/how-to-craft-your-own-electronic-american-passport-using-google-wallet-step-by-step-instructions-included/"><u>How To Craft Your Own Electronic American Passport Using Google Wallet, Step-By-Step Instructions Included</u></a></li>
+<li><a href="https://os-tips.techidaily.com/how-to-fix-common-issues-with-ios-updates-ios-18-17-16-15-14-13-for-your-iphone-and-ipad/"><u>How to Fix Common Issues with iOS Updates (iOS 18, 17, 16, 15, 14, 13) for Your iPhone & iPad</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-13-pro-max-to-other-iphone-13-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 13 Pro Max to other iPhone 13 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On iPhone 11 Pro Max</u></a></li>
 </ul></div>
 
