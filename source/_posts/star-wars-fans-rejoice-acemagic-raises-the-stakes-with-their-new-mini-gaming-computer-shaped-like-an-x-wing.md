@@ -1,7 +1,7 @@
 ---
 title: "Star Wars Fans Rejoice: AceMagic Raises the Stakes with Their New Mini Gaming Computer Shaped Like an X-Wing"
-date: 2025-01-04T19:20:39.961Z
-updated: 2025-01-09T17:36:06.946Z
+date: 2025-01-09T20:48:49.455Z
+updated: 2025-01-15T21:50:48.623Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,15 +62,15 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-trending-beats-navigating-the-world-of-viral-tiktok-raps/"><u>[New] In 2024, Trending Beats Navigating the World of Viral TikTok Raps</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-live-participation-guesting-on-tiktoks-for-2024/"><u>[New] Mastering Live Participation Guesting on TikToks for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-perfect-peace-mastering-the-art-of-muting-individuals-on-gomeet-for-2024/"><u>[New] Perfect Peace Mastering the Art of Muting Individuals on GoMeet for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-easy-steps-to-dance-and-unwind-with-these-top-20-songs-country-edition-for-2024/"><u>[Updated] Easy Steps to Dance & Unwind with These Top 20 Songs (Country Edition) for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-high-fidelity-portals-to-ps3-gaming-on-pcs/"><u>[Updated] High-Fidelity Portals to Ps3 Gaming on PCs</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/dialing-up-the-drama-captivating-tiktok-intros-via-mac-for-2024/"><u>Dialing Up the Drama Captivating TikTok Intros via Mac for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/how-to-craft-your-own-electronic-american-passport-using-google-wallet-step-by-step-instructions-included/"><u>How To Craft Your Own Electronic American Passport Using Google Wallet, Step-By-Step Instructions Included</u></a></li>
-<li><a href="https://os-tips.techidaily.com/how-to-fix-common-issues-with-ios-updates-ios-18-17-16-15-14-13-for-your-iphone-and-ipad/"><u>How to Fix Common Issues with iOS Updates (iOS 18, 17, 16, 15, 14, 13) for Your iPhone & iPad</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-13-pro-max-to-other-iphone-13-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 13 Pro Max to other iPhone 13 Pro devices? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-on-iphone-11-pro-max-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code On iPhone 11 Pro Max</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-essential-tools-for-android-and-ios-users-seeking-playlist-extractors/"><u>[New] 2024 Approved Essential Tools for Android & iOS Users Seeking Playlist Extractors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-11-innovative-metaverse-projects-for-insightful-analysis/"><u>[Updated] 2024 Approved 11 Innovative Metaverse Projects for Insightful Analysis</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-downloading-dynamite-a-tiktok-hustle-manual/"><u>[Updated] 2024 Approved Downloading Dynamite - A TikTok Hustle Manual</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-streamlined-list-frugal-mac-choices-for-tiktok-cuts/"><u>[Updated] In 2024, Streamlined List Frugal Mac Choices for TikTok Cuts</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-the-key-elements-of-a-high-impact-tiktok-promotion/"><u>[Updated] The Key Elements of a High-Impact TikTok Promotion</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-ultimate-collection-free-tiktok-edits-for-mac-users-for-2024/"><u>[Updated] Ultimate Collection Free TikTok Edits for Mac Users for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/5-most-effective-methods-to-unlock-iphone-7-plus-in-lost-mode-drfone-by-drfone-ios/"><u>5 Most Effective Methods to Unlock iPhone 7 Plus in Lost Mode | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-samsung-galaxy-a25-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Samsung Galaxy A25 5G | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/diagnose-and-resolve-wireless-keyboard-issues-in-windows-computers-easily/"><u>Diagnose and Resolve Wireless Keyboard Issues in Windows Computers Easily</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ltimate-travel-guide-youtubes-best-vlogs-for-2024/"><u>The Ultimate Travel Guide YouTube's Best Vlogs for 2024</u></a></li>
 </ul></div>
 

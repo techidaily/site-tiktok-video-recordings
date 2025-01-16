@@ -1,7 +1,7 @@
 ---
 title: "HPE El Capitan Blade: Harnessing the Power of AMD's Newest Instinct MI300A Card for a World Record Speed Supercomputer by Year's End"
-date: 2025-01-02T18:23:11.295Z
-updated: 2025-01-10T02:15:24.062Z
+date: 2025-01-12T20:54:22.517Z
+updated: 2025-01-16T00:41:00.302Z
 tags:
   - desktop
 categories:
@@ -55,7 +55,7 @@ __Ayaneo Retro Mini PC AM01 Specification__
  That said, if Ayaneo's successful[Indiegogo campaign](https://www.indiegogo.com/projects/ayaneo-retro-mini-pc-creator-of-mini-pc-2-0-era#/) proved anything, it's that users are willing to pay for a fun retro design despite potential trade-offs —[nostalgia is always a great way](https://www.tomshardware.com/peripherals/mechanical-keyboards/grab-this-cool-retro-console-inspired-keyboard-for-just-dollar83) to get people to buy something.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -81,18 +81,18 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-explore-20-most-shared-rap-tracks-on-social-media-for-2024/"><u>[New] Explore 20 Most Shared Rap Tracks on Social Media for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-mac-users-guide-to-stellar-tiktok-beginnings-for-2024/"><u>[New] Mac Users' Guide to Stellar TikTok Beginnings for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-tips-for-supercharging-tiktok-videos-with-professional-voiceovers/"><u>[Updated] In 2024, Tips for Supercharging TikTok Videos with Professional Voiceovers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-innovative-hubs-of-affordable-visual-content-sources-for-2024/"><u>[Updated] Innovative Hubs of Affordable Visual Content Sources for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-unlocking-the-power-of-social-medias-fb-covers-for-2024/"><u>[Updated] Unlocking the Power of Social Media's FB Covers for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-unveiling-hidden-gems-essential-tricks-for-win11/"><u>[Updated] Unveiling Hidden Gems Essential Tricks for Win11</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-top-8-youtube-images-that-captivate-and-convert-viewers/"><u>2024 Approved Top 8 YouTube Images That Captivate and Convert Viewers</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/l-jests-crafting-top-humorous-content-ideas-for-youtubers-for-2024/"><u>Joyful Jests Crafting Top Humorous Content Ideas for YouTubers for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-lava-yuva-2-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on Lava Yuva 2 and Browser | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/seamless-computer-based-tiktok-live-broadcast-setup/"><u>Seamless Computer-Based TikTok LIVE Broadcast Setup</u></a></li>
-<li><a href="https://techidaily.com/undelete-lost-music-from-infinix-hot-40i-by-fonelab-android-recover-music/"><u>Undelete lost music from Infinix Hot 40i</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unveiling-the-cutting-edge-technology-of-apples-latest-ipad-generation/"><u>Unveiling the Cutting-Edge Technology of Apple's Latest iPad Generation</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016629268-windows-7-sound-trouble-heres-how-to-get-it-working-again/"><u>Windows 7 Sound Trouble? Here's How to Get It Working Again</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-how-to-craft-a-unique-identifier-for-your-tiktok-stream/"><u>[New] 2024 Approved How to Craft a Unique Identifier for Your TikTok Stream</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-essential-techniques-5-methods-for-superior-tiktok-captioning/"><u>[New] Essential Techniques 5 Methods for Superior TikTok Captioning</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-deciphering-tiktoks-pfp-code-a-thorough-analysis/"><u>[New] In 2024, Deciphering TikTok's PFP Code - A Thorough Analysis</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-revealing-the-top-10-hidden-story-supporters-for-2024/"><u>[New] Revealing the Top 10 Hidden Story Supporters for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-altering-snapchat-audio-a-dual-approach-explained/"><u>[Updated] 2024 Approved Altering Snapchat Audio A Dual Approach Explained</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-mastering-the-art-of-creating-an-original-tiktok-hashtag/"><u>[Updated] 2024 Approved Mastering the Art of Creating an Original TikTok Hashtag</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-explore-new-territory-your-guide-to-live-streaming-tiktoks-for-2024/"><u>[Updated] Explore New Territory Your Guide to Live-Streaming TikToks for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-mastering-background-replacement-get-cost-free-lessons-in-green-screen-effects-from-youtubes-best/"><u>[Updated] Mastering Background Replacement Get Cost-Free Lessons in Green Screen Effects From YouTube's Best</u></a></li>
+<li><a href="https://os-tips.techidaily.com/creating-animated-gifs-using-your-iphone-a-step-by-step-guide/"><u>Creating Animated GIFs Using Your iPhone: A Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-why-perplexer-is-your-missing-link-in-mastering-google-searches/"><u>Discover Why Perplexer Is Your Missing Link in Mastering Google Searches</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/journey-to-visual-impact-with-simple-lenses/"><u>Journey to Visual Impact with Simple Lenses</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-google-pixel-8-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Google Pixel 8 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://win-online.techidaily.com/step-by-step-guide-converting-video-files-into-quicktime-format-on-mac-and-windows/"><u>Step-by-Step Guide: Converting Video Files Into QuickTime Format on Mac and Windows</u></a></li>
 </ul></div>
 

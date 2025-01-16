@@ -1,7 +1,7 @@
 ---
 title: "The Freedom of Portability: Power, Networking, & Intel CPU Inside the Miniaturized Minisforum S100 PC"
-date: 2025-01-04T04:56:42.387Z
-updated: 2025-01-10T07:39:54.039Z
+date: 2025-01-09T17:17:18.269Z
+updated: 2025-01-16T02:24:07.969Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,21 +76,22 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-essential-video-editors-for-cutting-edge-webcams/"><u>[New] 2024 Approved Essential Video Editors for Cutting-Edge Webcams</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-from-spectator-to-participant-joining-on-tiktok-live/"><u>[New] In 2024, From Spectator to Participant Joining on TikTok Live</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-tasty-tiktoks-worlds-best-food-vloggers/"><u>[New] In 2024, Tasty TikToks World's Best Food Vloggers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-learn-more-top-education-streams-online/"><u>[New] Learn More Top Education Streams Online</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-tiktok-audio-enhancement-made-easy-for-2024/"><u>[New] TikTok Audio Enhancement Made Easy for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-innovating-your-way-through-tiktok-the-power-of-templated-content-for-2024/"><u>[Updated] Innovating Your Way Through TikTok The Power of Templated Content for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-mastering-jujutsu-kaisen-challenges-for-tiktok/"><u>[Updated] Mastering Jujutsu Kaisen Challenges for TikTok</u></a></li>
-<li><a href="https://win11.techidaily.com/9-reasons-pcs-are-better-than-macs/"><u>9 Reasons PCs Are Better Than Macs</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/breeze-through-your-latest-fb-watches-2023-edition/"><u>Breeze Through Your Latest FB Watches 2023 Edition</u></a></li>
-<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Xiaomi Redmi A2+ | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-begin-with-class-in-every-screen-best-intro-editor-app/"><u>In 2024, Begin with Class in Every Screen Best Intro Editor App</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/innovative-leaps-for-text-generation-4-new-capabilities-hoped-for-gpt-5/"><u>Innovative Leaps for Text Generation: 4 New Capabilities Hoped for GPT-5</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/latest-mpow-bluetooth-driver-updates-for-windows-11-8-and-7-free-download/"><u>Latest MPOW Bluetooth Driver Updates for Windows 11, 8 & 7 - Free Download</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/revolutionize-your-social-media-game-with-top-20-tiktok-caption-strategies/"><u>Revolutionize Your Social Media Game with Top 20 TikTok Caption Strategies</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/trending-rap-anthems-from-tiktok-stars-for-2024/"><u>Trending Rap Anthems From TikTok Stars for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/zdnets-picks-the-ultimate-selection-of-the-best-remote-presence-robots/"><u>ZDNet's Picks: The Ultimate Selection of the Best Remote Presence Robots</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-2023s-standout-trends-on-the-tiktok-platform/"><u>[New] In 2024, 2023’S Standout Trends on the TikTok Platform</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-character-voiceovers-and-personas-for-dynamic-tiktok-content/"><u>[Updated] 2024 Approved Character Voiceovers and Personas for Dynamic TikTok Content</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-copyright-quest-for-content-creators-tiktok-edition/"><u>[Updated] 2024 Approved Copyright Quest for Content Creators (TikTok Edition)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-maximizing-your-tiktok-content-with-advanced-voice-controls-via-siri/"><u>[Updated] 2024 Approved Maximizing Your TikTok Content with Advanced Voice Controls via Siri</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-boost-your-social-media-reach-the-most-popular-hashtags-on-tiktok/"><u>[Updated] Boost Your Social Media Reach The Most Popular Hashtags on TikTok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-harmonizing-music-and-video-on-tiktok/"><u>[Updated] Harmonizing Music and Video on TikTok</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-a-comprehensively-reviewed-list-of-youtube-video-extractor-apps-android/"><u>[Updated] In 2024, A Comprehensively Reviewed List of YouTube Video Extractor Apps (Android)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-from-one-self-portrait-to-a-thousand-mastering-the-art-of-repeating-yourself-on-tiktok/"><u>[Updated] In 2024, From One Self-Portrait to a Thousand Mastering the Art of Repeating Yourself on TikTok</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-leading-virtual-reality-goggles-makers/"><u>2024 Approved Leading Virtual Reality Goggles Makers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/efficient-techniques-for-attaching-big-files-in-emails-a-comprehensive-guide-with-movavi/"><u>Efficient Techniques for Attaching Big Files in Emails: A Comprehensive Guide with Movavi</u></a></li>
+<li><a href="https://video-capture.techidaily.com/evaluating-fraps-as-a-screen-grab-pro-for-2024/"><u>Evaluating Fraps as a Screen Grab Pro for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-from-buzz-to-sales-transforming-social-media-into-traffic/"><u>In 2024, From Buzz to Sales Transforming Social Media Into Traffic</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-unleashing-video-potential-effective-seo-strategies-for-youtube/"><u>In 2024, Unleashing Video Potential Effective SEO Strategies for YouTube</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-poco-x6-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On Poco X6 | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-prime-picks-best-storytelling-channels-fans-for-2024/"><u>The Prime Picks Best Storytelling Channels Fans for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/top-5-best-terraria-map-for-viewers-to-find-treasure/"><u>Top 5 Best Terraria Map for Viewers to Find Treasure</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-guide-converting-your-dvds-into-digital-formats-on-pc-mac-and-mobile-devices/"><u>Ultimate Guide: Converting Your DVDs Into Digital Formats on PC, Mac & Mobile Devices</u></a></li>
 </ul></div>
 
