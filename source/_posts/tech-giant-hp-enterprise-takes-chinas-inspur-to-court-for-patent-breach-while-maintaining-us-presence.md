@@ -1,7 +1,7 @@
 ---
 title: Tech Giant HP Enterprise Takes China's Inspur to Court for Patent Breach While Maintaining U.S. Presence
-date: 2025-01-10T20:54:03.841Z
-updated: 2025-01-15T21:54:34.837Z
+date: 2025-01-15T08:53:09.467Z
+updated: 2025-01-22T10:46:33.156Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,21 +76,20 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-5-must-do-things-before-tiktok-usage-on-macos/"><u>[New] In 2024, 5 Must-Do Things Before TikTok Usage on macOS</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-integrating-facebook-video-into-home-screen-apps/"><u>[New] Integrating Facebook Video Into Home Screen Apps</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-accelerating-content-consumption-on-facebook/"><u>[Updated] Accelerating Content Consumption on Facebook</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-choreographing-the-finale-for-your-tiktok-story-for-2024/"><u>[Updated] Choreographing the Finale for Your TikTok Story for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-high-quality-8-cam-transformations-for-streaming/"><u>[Updated] High-Quality 8 Cam Transformations for Streaming</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-innovative-ways-to-decrease-audio-levels/"><u>[Updated] Innovative Ways to Decrease Audio Levels</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-safeguard-creativity-validating-content-for-tiktok-posting/"><u>[Updated] Safeguard Creativity Validating Content for TikTok Posting</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-viral-video-roundup-top-tiktok-reaction-shenanigans/"><u>[Updated] Viral Video Roundup Top TikTok Reaction Shenanigans</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-crafting-captivating-tiktok-content-from-anime-stories/"><u>2024 Approved Crafting Captivating TikTok Content From Anime Stories</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-step-by-step-guide-to-store-instagram-photosvideos-on-iphones/"><u>2024 Approved Step-by-Step Guide to Store Instagram Photos/Videos on iPhones</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-streamlining-short-film-previews-for-channels/"><u>2024 Approved Streamlining Short Film Previews for Channels</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210580514-9780578299112-awakening-new-life/"><u>Awakening New Life | Free Book</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/intelligent-dialogues-ai-showdown-between-gpt-and-bard/"><u>Intelligent Dialogues: AI Showdown Between GPT and Bard</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/reactivating-your-snapchat-a-comprehensive-guide/"><u>Reactivating Your Snapchat: A Comprehensive Guide</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/social-media-showdown-is-the-future-with-likes-or-sticking-to-tiktok-in-2024/"><u>Social Media Showdown Is the Future with Likes or Sticking to TikTok, In 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/unleash-your-earning-potential-on-tiktok-in-just-8-steps-for-2024/"><u>Unleash Your Earning Potential on TikTok in Just 8 Steps for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-essential-techniques-for-sizing-up-your-instagram-video-reach/"><u>[New] 2024 Approved Essential Techniques for Sizing Up Your Instagram Video Reach</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-get-into-a-friends-live-showcase-effortlessly/"><u>[New] Get Into a Friend's Live Showcase Effortlessly</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-ideal-fix-for-immersive-experiences/"><u>[New] Ideal Fix for Immersive Experiences</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-lost-footage-on-tiktok-repeat-video-history-for-2024/"><u>[New] Lost Footage on TikTok Repeat Video History for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-key-tips-to-enhance-your-experience-with-tiktok-macos/"><u>[Updated] Key Tips to Enhance Your Experience with TikTok (macOS)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-50-clever-tiktok-gags-for-laughter/"><u>2024 Approved 50 Clever TikTok Gags for Laughter</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-cutting-edge-anime-ideas-dominating-social-media-screens/"><u>2024 Approved Cutting-Edge Anime Ideas Dominating Social Media Screens</u></a></li>
+<li><a href="https://fox-that.techidaily.com/a-comprehensive-tutorial-on-remote-diagnosing-your-iphone-with-apple-services/"><u>A Comprehensive Tutorial on Remote Diagnosing Your iPhone with Apple Services</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/friendly-reminder-how-to-chill-at-someones-tiktok-party/"><u>Friendly Reminder How To Chill at Someone's TikTok Party</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-quick-guide-to-faster-tiktok-creation/"><u>In 2024, Quick Guide to Faster TikTok Creation</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-tunes-on-demand-picks-of-6-top-ranked-free-android-apps-for-youtube/"><u>In 2024, Tunes on Demand Picks of 6 Top-Ranked Free Android Apps for YouTube</u></a></li>
+<li><a href="https://some-tips.techidaily.com/mastering-cloud-tech-pays-off-why-generalists-remain-essential-in-it-zdnet/"><u>Mastering Cloud Tech Pays Off - Why Generalists Remain Essential in IT | ZDNet</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-ranking-samsung-television-models-comprehensive-testing-and-reviews-by-tech-experts-zdnet/"><u>Top-Ranking Samsung Television Models : Comprehensive Testing & Reviews by Tech Experts - ZDNet</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/upcoming-changes-will-microsoft-implement-pricing-on-windows-10-update-subscriptions-from-next-year-onwards/"><u>Upcoming Changes: Will Microsoft Implement Pricing on Windows 10 Update Subscriptions From Next Year Onwards?</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/secret-to-popularity-choosing-best-thumbnail-fonts/"><u>Your Secret to Popularity Choosing Best Thumbnail Fonts</u></a></li>
 </ul></div>
 

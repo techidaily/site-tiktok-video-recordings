@@ -1,7 +1,7 @@
 ---
 title: "Star Wars Fans Rejoice: AceMagic Raises the Stakes with Their New Mini Gaming Computer Shaped Like an X-Wing"
-date: 2025-01-09T20:48:49.455Z
-updated: 2025-01-15T21:50:48.623Z
+date: 2025-01-19T19:41:47.065Z
+updated: 2025-01-22T04:32:55.785Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,15 +62,19 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-essential-tools-for-android-and-ios-users-seeking-playlist-extractors/"><u>[New] 2024 Approved Essential Tools for Android & iOS Users Seeking Playlist Extractors</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-11-innovative-metaverse-projects-for-insightful-analysis/"><u>[Updated] 2024 Approved 11 Innovative Metaverse Projects for Insightful Analysis</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-downloading-dynamite-a-tiktok-hustle-manual/"><u>[Updated] 2024 Approved Downloading Dynamite - A TikTok Hustle Manual</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-streamlined-list-frugal-mac-choices-for-tiktok-cuts/"><u>[Updated] In 2024, Streamlined List Frugal Mac Choices for TikTok Cuts</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-the-key-elements-of-a-high-impact-tiktok-promotion/"><u>[Updated] The Key Elements of a High-Impact TikTok Promotion</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-ultimate-collection-free-tiktok-edits-for-mac-users-for-2024/"><u>[Updated] Ultimate Collection Free TikTok Edits for Mac Users for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/5-most-effective-methods-to-unlock-iphone-7-plus-in-lost-mode-drfone-by-drfone-ios/"><u>5 Most Effective Methods to Unlock iPhone 7 Plus in Lost Mode | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-samsung-galaxy-a25-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Samsung Galaxy A25 5G | Dr.fone</u></a></li>
-<li><a href="https://driver-error.techidaily.com/diagnose-and-resolve-wireless-keyboard-issues-in-windows-computers-easily/"><u>Diagnose and Resolve Wireless Keyboard Issues in Windows Computers Easily</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ltimate-travel-guide-youtubes-best-vlogs-for-2024/"><u>The Ultimate Travel Guide YouTube's Best Vlogs for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-the-unsung-heros-guide-to-tiktok-live-participation/"><u>[New] 2024 Approved The Unsung Hero's Guide to TikTok Live Participation</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-crafters-guide-to-crafting-a-unique-tiktok-keyphrase-for-2024/"><u>[New] Crafters' Guide to Crafting a Unique TikTok Keyphrase for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-vlog-confidently-like-popular-youtubers/"><u>[New] In 2024, How to Vlog Confidently Like Popular YouTubers?</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-mastering-engagement-a-compendium-of-the-top-20-youtube-hacks/"><u>[New] In 2024, Mastering Engagement A Compendium of the Top 20 YouTube Hacks</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-the-art-of-eating-10-social-media-staples/"><u>[Updated] In 2024, The Art of Eating 10 Social Media Staples</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-social-media-food-frenzy-10-hits-for-2024/"><u>[Updated] Social Media Food Frenzy 10 Hits for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-uncover-the-leading-free-online-subtitle-makers-srt/"><u>[Updated] Uncover the Leading Free Online Subtitle Makers (Srt)</u></a></li>
+<li><a href="https://howto.techidaily.com/bricked-your-samsung-galaxy-a05-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Samsung Galaxy A05? Heres A Full Solution | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-your-apple-iphone-se-2020-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From your Apple iPhone SE (2020)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/deciphering-no-snaps-possible-blocking/"><u>Deciphering No Snaps, Possible Blocking</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/decoding-windows-xpatch-puzzle-error-0x80073712/"><u>Decoding Windows XPatch Puzzle: Error 0X80073712</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-cutting-edge-imagery-iphones-photo-cropping-techniques/"><u>In 2024, Cutting Edge Imagery IPhone's Photo Cropping Techniques</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/transformative-pfps-that-define-your-tiktok-identity-for-2024/"><u>Transformative PFPs that Define Your TikTok Identity for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-eco-friendly-features-in-ciscos-collaborative-software-insights-from-zdnet/"><u>Unveiling Eco-Friendly Features in Cisco's Collaborative Software – Insights From ZDNet</u></a></li>
 </ul></div>
 

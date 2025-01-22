@@ -1,7 +1,7 @@
 ---
 title: "HPE Litigates Against China's Inspur: Patent Violation Allegations Overshadowed by Ongoing Sanction-Defying Business Activities in the U.S."
-date: 2025-01-10T22:12:54.354Z
-updated: 2025-01-15T19:04:14.472Z
+date: 2025-01-20T06:53:29.214Z
+updated: 2025-01-21T17:44:58.565Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,20 +60,22 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-navigating-the-social-sphere-of-tiktok-lives/"><u>[New] 2024 Approved Navigating the Social Sphere of TikTok Lives</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-become-an-elite-joiner-tips-for-tiktok-lives/"><u>[New] Become an Elite Joiner Tips for TikTok Lives</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-ever-fading-memories-revived-youtubes-lost-content-hunt-for-2024/"><u>[New] Ever-Fading Memories Revived YouTube's Lost Content Hunt for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-how-to-make-a-tiktok-outro/"><u>[New] How To Make A Tiktok Outro</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-ipad-video-tutorials-for-easy-time-lapses/"><u>[New] IPad Video Tutorials for Easy Time-Lapses</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-penning-powerful-stories-with-a-camera-lens-for-2024/"><u>[New] Penning Powerful Stories with a Camera Lens for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-inspiring-originality-in-tiktok-pfps-to-boost-profile-traction/"><u>[Updated] In 2024, Inspiring Originality in TikTok PFPs to Boost Profile Traction</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-rapid-tiktok-video-loading-a-guide/"><u>[Updated] In 2024, Rapid TikTok Video Loading A Guide</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-the-cinematic-revolution-exploring-the-best-shots-and-lighting-tips-24-edition-for-2024/"><u>[Updated] The Cinematic Revolution Exploring the Best Shots & Lighting Tips - '24 Edition for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/best-mobile-gaming-experience-on-iphone-models-a-comparison/"><u>Best Mobile Gaming Experience on iPhone Models – A Comparison</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/delete-gmail-account-withwithout-password-on-itel-s23plus-by-drfone-android/"><u>Delete Gmail Account With/Without Password On Itel S23+</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/elevate-visual-narratives-on-tiktok-the-top-5-proven-text-techniques/"><u>Elevate Visual Narratives on TikTok The Top 5 Proven Text Techniques</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-streamline-your-tiktok-experience-4-desktop-broadcast-strategies/"><u>In 2024, Streamline Your TikTok Experience 4 Desktop Broadcast Strategies</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/by-step-building-a-youtube-empire-from-scratch/"><u>Step by Step Building a YouTube Empire From Scratch</u></a></li>
-<li><a href="https://win-able.techidaily.com/the-ultimate-guide-to-addressing-pc-crashes-in-the-witcher-3-game/"><u>The Ultimate Guide to Addressing PC Crashes in The Witcher 3 Game</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-crafters-guide-to-crafting-a-unique-tiktok-keyphrase/"><u>[New] 2024 Approved Crafters' Guide to Crafting a Unique TikTok Keyphrase</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-advanced-screen-recording-of-facetime-dialogues/"><u>[New] In 2024, Advanced Screen Recording of FaceTime Dialogues</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-anime-and-music-mixing-up-the-next-big-tiktok-hits/"><u>[New] In 2024, Anime and Music Mixing Up the Next Big TikTok Hits</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-elevating-your-tiktok-presence-harness-the-power-of-siri-speech/"><u>[New] In 2024, Elevating Your TikTok Presence Harness the Power of Siri Speech</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-rapid-downloads-for-the-latest-musicals-on-tiktok-for-2024/"><u>[New] Mastering Rapid Downloads for the Latest Musicals on TikTok for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ptimal-film-and-camera-choices-for-youtube-vloggers-for-2024/"><u>[New] Optimal Film & Camera Choices for YouTube Vloggers for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-art-of-keeping-tiktok-content-safe-on-devices-for-2024/"><u>[New] The Art of Keeping TikTok Content Safe on Devices for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-crafting-compelling-content-with-macootd-tiktoks/"><u>[Updated] Crafting Compelling Content with MacOOTD TikToks</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-screencast-maker-for-fb-chat/"><u>[Updated] In 2024, ScreenCast Maker for FB Chat</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-master-iphone-photo-watermarks-the-top-apps-reviewed/"><u>[Updated] Master iPhone Photo Watermarks The Top Apps Reviewed</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-unlocking-the-potential-of-live-broadcasting-on-discord-for-2024/"><u>[Updated] Unlocking the Potential of Live Broadcasting on Discord for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-larger-visuals-elevating-your-youtube-footage/"><u>2024 Approved Larger Visuals Elevating Your YouTube Footage</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-where-creativity-meets-technology-in-youtube-studio/"><u>2024 Approved Where Creativity Meets Technology in YouTube Studio</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-screen-projection-not-working-window-glitch/"><u>Addressing Screen Projection Not Working Window Glitch</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-perfecting-fading-audio-tracks-through-audacitys-tools/"><u>In 2024, Perfecting Fading Audio Tracks Through Audacity's Tools</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-sculpting-an-impactful-tiktok-conclusion/"><u>In 2024, Sculpting an Impactful TikTok Conclusion</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/sculpting-an-impactful-tiktok-conclusion/"><u>Sculpting an Impactful TikTok Conclusion</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Mastering PC Building Basics at Tom's Hardware Academy
-date: 2025-01-10T21:46:12.254Z
-updated: 2025-01-15T23:14:44.980Z
+date: 2025-01-20T06:22:14.795Z
+updated: 2025-01-21T16:46:16.399Z
 tags:
   - desktop
 categories:
@@ -42,7 +42,7 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
  We caught a first glimpse of the AtomMan X7 Ti[at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) when it was showcased with other interesting new computers like the Minisforum HX200G, Mini Workstation MS-01, and the[V3 tablet](https://www.tomshardware.com/tablets/minisforum-v3-tablet-arrives-the-worlds-first-amd-ryzen-7-8840u-powered-surface-clone) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -68,18 +68,17 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-how-to-maintain-consistency-in-voice-posts-on-instagram/"><u>[New] 2024 Approved How to Maintain Consistency in Voice Posts on Instagram</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/xtracting-youtube-songs-safely-a-free-guide-explored-for-2024/"><u>[New] Extracting YouTube Songs Safely A Free Guide Explored for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-reality-redefined-exploring-virtualitys-kin-vr-ar-and-mr/"><u>[New] Reality Redefined Exploring Virtuality’s Kin - VR, AR, & MR</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-boosting-bank-balance-crafting-commercial-video-content-for-2024/"><u>[Updated] Boosting Bank Balance Crafting Commercial Video Content for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-effortless-tiktok-sharing-from-mac-and-pc-devices/"><u>[Updated] Effortless TikTok Sharing From Mac & PC Devices</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-essential-date-counting-tools-for-android-and-ios-users-for-2024/"><u>[Updated] Essential Date-Counting Tools for Android and iOS Users for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-how-to-dominate-the-viral-video-edit-scene-on-tiktok-for-2024/"><u>[Updated] How to Dominate the Viral Video Edit Scene on TikTok for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-how-to-download-tiktok-on-macbook/"><u>[Updated] In 2024, How to Download TikTok on Macbook</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-pitch-perfect-productions-integrating-songs-in-tiktok-vids-for-2024/"><u>[Updated] Pitch-Perfect Productions Integrating Songs in TikTok Vids for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-10-free-resources-for-perfect-presentation-slides/"><u>In 2024, 10 Free Resources for Perfect Presentation Slides</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/the-ultimate-strategy-for-integrating-chatgpt-into-your-3d-printing-workflow/"><u>The Ultimate Strategy for Integrating ChatGPT Into Your 3D Printing Workflow</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshoot-and-solve-silent-astro-a50-headphones-immediately/"><u>Troubleshoot and Solve Silent Astro A50 Headphones Immediately</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-essential-french-expressions-for-exploring-france/"><u>Ultimate Guide: Essential French Expressions for Exploring France</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-distinguishing-between-youtube-policies-and-cc-clauses/"><u>[New] In 2024, Distinguishing Between YouTube Policies and CC Clauses</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-art-of-perfection-in-tiktok-production-with-designed-video-templates-for-2024/"><u>[New] The Art of Perfection in TikTok Production with Designed Video Templates for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-silencers-guide-banishing-background-buzz/"><u>2024 Approved The Silencer's Guide Banishing Background Buzz</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/efficient-system-monitoring-ram-gpu-and-cpu-status-guide/"><u>Efficient System Monitoring: RAM, GPU, and CPU Status Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/essential-techniques-for-making-and-tweaking-multi-snap-chats/"><u>Essential Techniques for Making & Tweaking Multi-Snap Chats</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/explore-creative-freedom-using-free-dall-e-3-features-in-bing-search-engine/"><u>Explore Creative Freedom Using Free DALL-E 3 Features in Bing Search Engine</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-oppo-reno-10-pro-5g-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Oppo Reno 10 Pro 5G</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-laugh-ledger-a-compendium-of-current-comedy-sensations/"><u>In 2024, Laugh Ledger A Compendium of Current Comedy Sensations</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/mastering-video-editing-replacing-audio-tracks-a-comprehensive-guide-part-1-for-2024/"><u>Mastering Video Editing Replacing Audio Tracks - A Comprehensive Guide (Part 1) for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/tackling-obs-screenshots-and-captures-the-ultimate-fix-for-black-image-dilemmas/"><u>Tackling OBS Screenshots and Captures - The Ultimate Fix for Black Image Dilemmas</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/ultimate-guide-to-the-top-5-premium-1080p-hd-video-players-available-on-windows-macos-and-linux-systems/"><u>Ultimate Guide to the Top 5 Premium 1080P HD Video Players Available on Windows, macOS, and Linux Systems</u></a></li>
 </ul></div>
 
