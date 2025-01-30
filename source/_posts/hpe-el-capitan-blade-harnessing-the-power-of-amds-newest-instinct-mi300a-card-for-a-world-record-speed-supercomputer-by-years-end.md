@@ -1,7 +1,7 @@
 ---
 title: "HPE El Capitan Blade: Harnessing the Power of AMD's Newest Instinct MI300A Card for a World Record Speed Supercomputer by Year's End"
-date: 2025-01-17T01:50:46.838Z
-updated: 2025-01-22T00:41:40.797Z
+date: 2025-01-23T16:45:45.704Z
+updated: 2025-01-29T17:37:02.922Z
 tags:
   - desktop
 categories:
@@ -55,7 +55,7 @@ __Ayaneo Retro Mini PC AM01 Specification__
  That said, if Ayaneo's successful[Indiegogo campaign](https://www.indiegogo.com/projects/ayaneo-retro-mini-pc-creator-of-mini-pc-2-0-era#/) proved anything, it's that users are willing to pay for a fun retro design despite potential trade-offs —[nostalgia is always a great way](https://www.tomshardware.com/peripherals/mechanical-keyboards/grab-this-cool-retro-console-inspired-keyboard-for-just-dollar83) to get people to buy something.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -81,18 +81,20 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-time-saving-strategies-for-efficient-content-engagement-on-tiktok/"><u>[New] 2024 Approved Time-Saving Strategies for Efficient Content Engagement on TikTok</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-creating-captivating-tiktok-outro-sequences/"><u>[New] Creating Captivating TikTok Outro Sequences</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-android-and-iphone-select-top-tier-mobile-multimedia-tools/"><u>[Updated] Android & iPhone Select Top-Tier Mobile Multimedia Tools</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-making-magic-tiktok-dancing-masterclass-for-mac-users/"><u>[Updated] In 2024, Making Magic TikTok Dancing Masterclass for Mac Users</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-skyrocket-your-earnings-on-tiktok-discover-the-top-8-ways-for-2024/"><u>[Updated] Skyrocket Your Earnings on TikTok Discover the Top 8 Ways for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-tiktoks-hottest-culinary-trends-try-these-15-easy-delights/"><u>2024 Approved TikTok's Hottest Culinary Trends - Try These 15 Easy Delights</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1723010840997-dread-hunger-pc-issues-discover-how-to-prevent-unexpected-game-closures/"><u>Dread Hunger PC Issues? Discover How to Prevent Unexpected Game Closures</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/free-watch-now-the-ultimate-selection-of-10-iconic-hollywood-horror-flicks/"><u>Free Watch Now! The Ultimate Selection of 10 Iconic Hollywood Horror Flicks</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-latest-guide-on-ipad-23-and-apple-iphone-14-plus-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Latest Guide on iPad 2/3 and Apple iPhone 14 Plus iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-mastering-3d-text-in-adobe-photoshop/"><u>In 2024, Mastering 3D Text in Adobe Photoshop</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-the-essential-guide-to-creating-beautifully-stretched-time-videos-online/"><u>In 2024, The Essential Guide to Creating Beautifully Stretched Time Videos Online</u></a></li>
-<li><a href="https://win-dash.techidaily.com/install-new-epson-tm-t88v-driver-software-for-windows-devices/"><u>Install New EPSON TM-T88V Driver Software for Windows Devices</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/ultimate-compilation-of-ios-compatible-ps2-games/"><u>Ultimate Compilation of iOS-Compatible PS2 Games</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-the-infographic-lens-on-2017s-youtube-numerical-truths/"><u>[New] 2024 Approved The Infographic Lens on 2017'S Youtube Numerical Truths</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-tiktok-trends-hit-amazon-your-must-have-list/"><u>[New] 2024 Approved TikTok Trends Hit Amazon - Your Must-Have List</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-unlock-tiktok-a-macbook-users-guide/"><u>[New] 2024 Approved Unlock TikTok A MacBook User's Guide</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-8-sites-to-download-free-green-screen-backgrounds-and-footage/"><u>[Updated] In 2024, 8 Sites to Download Free Green Screen Backgrounds and Footage</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-tapping-into-trends-your-guide-to-impactful-instagram-tags/"><u>[Updated] In 2024, Tapping Into Trends Your Guide to Impactful Instagram Tags</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-top-10-screen-free-android-apps-for-leisurely-gaming/"><u>[Updated] In 2024, Top 10 Screen-Free Android Apps for Leisurely Gaming</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-copyright-quest-for-content-creators-tiktok-edition/"><u>2024 Approved Copyright Quest for Content Creators (TikTok Edition)</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/creating-ootd-masterpieces-for-tiktok-with-macos/"><u>Creating OOTD Masterpieces for TikTok with MacOS</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/find-your-perfect-tiktok-video-explore-the-best-10-free-mac-compatible-editing-apps-for-2024/"><u>Find Your Perfect TikTok Video - Explore the Best 10 Free, Mac-Compatible Editing Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/from-clicks-to-coins-mastering-the-art-of-earnings-through-fb-videos-for-2024/"><u>From Clicks to Coins Mastering the Art of Earnings Through FB Videos for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-mac-video-editing-made-easy-yosemite-edition/"><u>In 2024, Mac Video Editing Made Easy Yosemite Edition</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-making-memorable-content-a-macos-approach-to-ootds/"><u>In 2024, Making Memorable Content A MacOS Approach to OOTDs</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-mastering-movies-the-best-of-viral-tiktok-creations-top-10/"><u>In 2024, Mastering Movies The Best of Viral TikTok Creations (Top 10)</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/leading-picture-data-holders/"><u>Leading Picture Data Holders</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/strategic-insights-into-youtubes-adsense-earnings-by-thousand-viewers-for-2024/"><u>Strategic Insights Into Youtube's AdSense Earnings by Thousand Viewers for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "HPE Litigates Against China's Inspur: Patent Violation Allegations Overshadowed by Ongoing Sanction-Defying Business Activities in the U.S."
-date: 2025-01-20T06:53:29.214Z
-updated: 2025-01-21T17:44:58.565Z
+date: 2025-01-23T16:43:53.317Z
+updated: 2025-01-29T20:05:00.510Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,22 +60,24 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-crafters-guide-to-crafting-a-unique-tiktok-keyphrase/"><u>[New] 2024 Approved Crafters' Guide to Crafting a Unique TikTok Keyphrase</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-advanced-screen-recording-of-facetime-dialogues/"><u>[New] In 2024, Advanced Screen Recording of FaceTime Dialogues</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-anime-and-music-mixing-up-the-next-big-tiktok-hits/"><u>[New] In 2024, Anime and Music Mixing Up the Next Big TikTok Hits</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-elevating-your-tiktok-presence-harness-the-power-of-siri-speech/"><u>[New] In 2024, Elevating Your TikTok Presence Harness the Power of Siri Speech</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-rapid-downloads-for-the-latest-musicals-on-tiktok-for-2024/"><u>[New] Mastering Rapid Downloads for the Latest Musicals on TikTok for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ptimal-film-and-camera-choices-for-youtube-vloggers-for-2024/"><u>[New] Optimal Film & Camera Choices for YouTube Vloggers for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-art-of-keeping-tiktok-content-safe-on-devices-for-2024/"><u>[New] The Art of Keeping TikTok Content Safe on Devices for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-crafting-compelling-content-with-macootd-tiktoks/"><u>[Updated] Crafting Compelling Content with MacOOTD TikToks</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-screencast-maker-for-fb-chat/"><u>[Updated] In 2024, ScreenCast Maker for FB Chat</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-master-iphone-photo-watermarks-the-top-apps-reviewed/"><u>[Updated] Master iPhone Photo Watermarks The Top Apps Reviewed</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-unlocking-the-potential-of-live-broadcasting-on-discord-for-2024/"><u>[Updated] Unlocking the Potential of Live Broadcasting on Discord for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-larger-visuals-elevating-your-youtube-footage/"><u>2024 Approved Larger Visuals Elevating Your YouTube Footage</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-where-creativity-meets-technology-in-youtube-studio/"><u>2024 Approved Where Creativity Meets Technology in YouTube Studio</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/addressing-screen-projection-not-working-window-glitch/"><u>Addressing Screen Projection Not Working Window Glitch</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-perfecting-fading-audio-tracks-through-audacitys-tools/"><u>In 2024, Perfecting Fading Audio Tracks Through Audacity's Tools</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-sculpting-an-impactful-tiktok-conclusion/"><u>In 2024, Sculpting an Impactful TikTok Conclusion</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/sculpting-an-impactful-tiktok-conclusion/"><u>Sculpting an Impactful TikTok Conclusion</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-sdr-to-hdr-conversion-companion-book/"><u>[New] In 2024, The SDR to HDR Conversion Companion Book</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unravel-the-revenue-riddle-googles-guided-triple-steps-to-youtube-income-analysis/"><u>[New] In 2024, Unravel the Revenue Riddle Google's Guided Triple Steps to YouTube Income Analysis</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-quick-tips-transferring-camera-roll-from-your-device-to-snapchat-app-for-2024/"><u>[New] Quick Tips Transferring Camera Roll From Your Device to Snapchat App for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-creating-compelling-cost-free-youtube-intros/"><u>[Updated] 2024 Approved Creating Compelling, Cost-Free YouTube Intros</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-essential-tips-for-mac-based-tiktok-video-edits/"><u>[Updated] Essential Tips for Mac-Based TikTok Video Edits</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-expedite-growth-on-tiktok-with-these-top-strategies-for-2024/"><u>[Updated] Expedite Growth on TikTok with These Top Strategies for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-guide-to-large-prop-integration-in-tiktok-productions-for-2024/"><u>[Updated] Guide to Large Prop Integration in TikTok Productions for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-making-the-most-of-siri-voice-interactions-for-tiktok-content/"><u>[Updated] In 2024, Making the Most of Siri Voice Interactions for TikTok Content</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-mastering-tiktoks-siri-speech-functionality/"><u>[Updated] In 2024, Mastering TikTok's Siri Speech Functionality</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-top-10-tiktok-strategies-for-winning-campaigns/"><u>[Updated] In 2024, Top 10 TikTok Strategies for Winning Campaigns</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-revealing-the-top-6-affordable-web-accessible-tiktok-to-mp3-apps/"><u>[Updated] Revealing the Top 6 Affordable, Web-Accessible TikTok to MP3 Apps</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-top-5-methods-for-creating-an-impressive-tiktok-introduction-with-macos/"><u>[Updated] Top 5 Methods for Creating an Impressive TikTok Introduction with MacOS</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-slow-motion-a-guide-to-photo-editing-tools/"><u>2024 Approved Mastering Slow-Motion A Guide to Photo Editing Tools</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-can-i-unlock-my-iphone-se-2020-after-forgetting-my-pin-code-drfone-by-drfone-ios/"><u>How Can I Unlock My iPhone SE (2020) After Forgetting my PIN Code? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-xiaomi-redmi-a2-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Xiaomi Redmi A2? | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-step-into-fame-the-essential-blueprint-for-adding-channels-as-features-on-youtube/"><u>In 2024, Step Into Fame The Essential Blueprint for Adding Channels as Features on Youtube</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/iphone-data-retrieval-software-secure-your-precious-memories/"><u>IPhone Data Retrieval Software – Secure Your Precious Memories</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/overwatch-assessment-exciting-and-challenging-cooperative-firefights-for-gamers/"><u>Overwatch Assessment: Exciting and Challenging Cooperative Firefights for Gamers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/scriptwriting-essentials-mastering-the-art-of-slug-lines-for-2024/"><u>Scriptwriting Essentials Mastering the Art of Slug Lines for 2024</u></a></li>
 </ul></div>
 

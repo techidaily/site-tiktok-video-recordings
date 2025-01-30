@@ -1,7 +1,7 @@
 ---
 title: "Star Wars Fans Rejoice: AceMagic Raises the Stakes with Their New Mini Gaming Computer Shaped Like an X-Wing"
-date: 2025-01-19T19:41:47.065Z
-updated: 2025-01-22T04:32:55.785Z
+date: 2025-01-28T17:08:22.255Z
+updated: 2025-01-29T23:44:17.215Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,19 +62,24 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-the-unsung-heros-guide-to-tiktok-live-participation/"><u>[New] 2024 Approved The Unsung Hero's Guide to TikTok Live Participation</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-crafters-guide-to-crafting-a-unique-tiktok-keyphrase-for-2024/"><u>[New] Crafters' Guide to Crafting a Unique TikTok Keyphrase for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-how-to-vlog-confidently-like-popular-youtubers/"><u>[New] In 2024, How to Vlog Confidently Like Popular YouTubers?</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-mastering-engagement-a-compendium-of-the-top-20-youtube-hacks/"><u>[New] In 2024, Mastering Engagement A Compendium of the Top 20 YouTube Hacks</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-the-art-of-eating-10-social-media-staples/"><u>[Updated] In 2024, The Art of Eating 10 Social Media Staples</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-social-media-food-frenzy-10-hits-for-2024/"><u>[Updated] Social Media Food Frenzy 10 Hits for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-uncover-the-leading-free-online-subtitle-makers-srt/"><u>[Updated] Uncover the Leading Free Online Subtitle Makers (Srt)</u></a></li>
-<li><a href="https://howto.techidaily.com/bricked-your-samsung-galaxy-a05-heres-a-full-solution-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Bricked Your Samsung Galaxy A05? Heres A Full Solution | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-your-apple-iphone-se-2020-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From your Apple iPhone SE (2020)</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/deciphering-no-snaps-possible-blocking/"><u>Deciphering No Snaps, Possible Blocking</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/decoding-windows-xpatch-puzzle-error-0x80073712/"><u>Decoding Windows XPatch Puzzle: Error 0X80073712</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-cutting-edge-imagery-iphones-photo-cropping-techniques/"><u>In 2024, Cutting Edge Imagery IPhone's Photo Cropping Techniques</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/transformative-pfps-that-define-your-tiktok-identity-for-2024/"><u>Transformative PFPs that Define Your TikTok Identity for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/unveiling-eco-friendly-features-in-ciscos-collaborative-software-insights-from-zdnet/"><u>Unveiling Eco-Friendly Features in Cisco's Collaborative Software – Insights From ZDNet</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-amazons-trendy-treasures-the-must-have-tiktok-finds-of-2023/"><u>[New] 2024 Approved Amazon's Trendy Treasures - The Must-Have TikTok Finds of 2023</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-expert-selection-of-pc-friendly-video-editors-for-tiktok/"><u>[New] 2024 Approved Expert Selection of PC-Friendly Video Editors for TikTok</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-az-video-logger-full-application-breakdown/"><u>[New] AZ Video Logger Full Application Breakdown</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-the-exclusive-guide-to-best-4k-screens-for-mac-devotees/"><u>[New] The Exclusive Guide to Best 4K Screens for Mac Devotees</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-top-8-best-4k-blu-ray-players/"><u>[New] Top 8 Best 4K Blu-Ray Players</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-from-phone-ideas-to-online-presence-simple-youtube-channel-creation-tips/"><u>[Updated] From Phone Ideas to Online Presence Simple YouTube Channel Creation Tips</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-future-earnings-gaming-geeks-on-youtube/"><u>[Updated] In 2024, Future Earnings Gaming Geeks on YouTube</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-quick-tricks-randomizing-youtube-videos-on-all-devices/"><u>2024 Approved Quick Tricks Randomizing YouTube Videos on All Devices</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-viral-victory-top-10-triumphant-tiktok-struggles/"><u>2024 Approved Viral Victory Top 10 Triumphant TikTok Struggles</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/accessing-and-saving-discord-media-free-methods-revealed/"><u>Accessing and Saving Discord Media Free Methods Revealed</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-realme-11-5g-drfone-by-drfone-virtual-android/"><u>Can I use iTools gpx file to catch the rare Pokemon On Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/dive-into-discoworld-our-top-10-theme-picks/"><u>Dive Into DiscoWorld - Our Top 10 Theme Picks</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/elevate-your-edits-creating-stellar-tiktok-react-videos-in-filmoras-pro-features-for-2024/"><u>Elevate Your Edits Creating Stellar TikTok React Videos in Filmora's Pro Features for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/embrace-your-inner-cartoon-how-to-apply-snapchats-anime-effect/"><u>Embrace Your Inner Cartoon How To Apply Snapchat's Anime Effect</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-10-superior-virtual-background-switchers-guide/"><u>In 2024, 10 Superior Virtual Background Switchers Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-how-to-go-live-on-tiktokmusically/"><u>In 2024, How to Go Live on TikTok/Musical.ly</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/invisible-stories-unveiled-a-complete-snapguide/"><u>Invisible Stories Unveiled A Complete Snapguide</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/level-up-your-play-expert-insights-into-the-mavix-m9-gaming-chair-comfort-and-performance/"><u>Level Up Your Play: Expert Insights Into the Mavix M9 Gaming Chair Comfort & Performance</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/1728485085609-404/"><u>ネット上で失われたページの謎を解く: 404エラー指南</u></a></li>
 </ul></div>
 

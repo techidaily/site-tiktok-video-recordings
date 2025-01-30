@@ -1,7 +1,7 @@
 ---
 title: Mastering PC Building Basics at Tom's Hardware Academy
-date: 2025-01-20T06:22:14.795Z
-updated: 2025-01-21T16:46:16.399Z
+date: 2025-01-27T22:26:48.160Z
+updated: 2025-01-29T20:49:50.323Z
 tags:
   - desktop
 categories:
@@ -42,7 +42,7 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
  We caught a first glimpse of the AtomMan X7 Ti[at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) when it was showcased with other interesting new computers like the Minisforum HX200G, Mini Workstation MS-01, and the[V3 tablet](https://www.tomshardware.com/tablets/minisforum-v3-tablet-arrives-the-worlds-first-amd-ryzen-7-8840u-powered-surface-clone) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -68,17 +68,24 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-distinguishing-between-youtube-policies-and-cc-clauses/"><u>[New] In 2024, Distinguishing Between YouTube Policies and CC Clauses</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-art-of-perfection-in-tiktok-production-with-designed-video-templates-for-2024/"><u>[New] The Art of Perfection in TikTok Production with Designed Video Templates for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-silencers-guide-banishing-background-buzz/"><u>2024 Approved The Silencer's Guide Banishing Background Buzz</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/efficient-system-monitoring-ram-gpu-and-cpu-status-guide/"><u>Efficient System Monitoring: RAM, GPU, and CPU Status Guide</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/essential-techniques-for-making-and-tweaking-multi-snap-chats/"><u>Essential Techniques for Making & Tweaking Multi-Snap Chats</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/explore-creative-freedom-using-free-dall-e-3-features-in-bing-search-engine/"><u>Explore Creative Freedom Using Free DALL-E 3 Features in Bing Search Engine</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Xiaomi 13T | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-oppo-reno-10-pro-5g-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Oppo Reno 10 Pro 5G</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-laugh-ledger-a-compendium-of-current-comedy-sensations/"><u>In 2024, Laugh Ledger A Compendium of Current Comedy Sensations</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/mastering-video-editing-replacing-audio-tracks-a-comprehensive-guide-part-1-for-2024/"><u>Mastering Video Editing Replacing Audio Tracks - A Comprehensive Guide (Part 1) for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/tackling-obs-screenshots-and-captures-the-ultimate-fix-for-black-image-dilemmas/"><u>Tackling OBS Screenshots and Captures - The Ultimate Fix for Black Image Dilemmas</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/ultimate-guide-to-the-top-5-premium-1080p-hd-video-players-available-on-windows-macos-and-linux-systems/"><u>Ultimate Guide to the Top 5 Premium 1080P HD Video Players Available on Windows, macOS, and Linux Systems</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-dynamic-dynamics-groundbreaking-bio-formats-that-expand-follower-numbers-on-tiktok-filmora/"><u>[New] 2024 Approved Dynamic Dynamics Groundbreaking Bio Formats that Expand Follower Numbers on TikTok-Filmora</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-strategic-visual-marketing-top-10-ideas-to-amplify-your-instagram-presence/"><u>[New] Strategic Visual Marketing Top 10 Ideas to Amplify Your Instagram Presence</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-history-enthusiasts-guide-to-inspiring-youtube-channels/"><u>[Updated] History Enthusiasts' Guide to Inspiring YouTube Channels</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-should-you-monitor-off-facebook-a-guide-for-users/"><u>[Updated] Should You Monitor Off-Facebook? A Guide for Users</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-coordinated-duet-clips-with-tiktok-twist/"><u>2024 Approved Coordinated Duet Clips with TikTok Twist</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-viral-video-showdown-is-it-time-for-likee-to-outshine-tiktok/"><u>2024 Approved Viral Video Showdown Is It Time for Likee to Outshine TikTok?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/can-i-expect-different-sized-replies-from-chatgpt/"><u>Can I Expect Different Sized Replies From ChatGPT?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/discovering-the-secrets-to-a-perfect-pfp-on-discord/"><u>Discovering The Secrets to a Perfect Pfp on Discord</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/easy-tutorial-converting-online-milliyet-video-content-into-mp4-format-for-offline-viewing-on-both-mac-and-windows-computers/"><u>Easy Tutorial: Converting Online Milliyet Video Content Into MP4 Format for Offline Viewing on Both Mac and Windows Computers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/enhancing-connectivity-ios-photo-library-and-snapchat-merge/"><u>Enhancing Connectivity IOS Photo Library & Snapchat Merge</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/essential-ingredients-for-triumphant-tiktok-marketing-plans-for-2024/"><u>Essential Ingredients for Triumphant TikTok Marketing Plans for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-frp-hijacker-by-hagard-download-and-bypass-your-honor-magic-6-frp-locks-by-drfone-android/"><u>In 2024, FRP Hijacker by Hagard Download and Bypass your Honor Magic 6 FRP Locks</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-unleashing-music-from-tiktok-top-free-on-web-to-mp3-tools/"><u>In 2024, Unleashing Music From TikTok Top Free, On-Web To MP3 Tools</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/in-depth-analysis-of-the-newly-updated-samsung-galaxy-watch3-stylish-vintage-and-contemporary-advancements-combined/"><u>In-Depth Analysis of the Newly Updated Samsung Galaxy Watch3 - Stylish Vintage and Contemporary Advancements Combined</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/instant-restoration-for-missing-snaps/"><u>Instant Restoration for Missing Snaps</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/make-every-snap-spectacited-top-editors-for-snapchats-best-effects/"><u>Make Every Snap Spectacited Top Editors for Snapchat's Best Effects</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-call-logs-from-google-pixel-8-by-fonelab-android-recover-call-logs/"><u>Undelete lost call logs from Google Pixel 8</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mp4-to-mxf-movavi/"><u>フリーMP4 to MXF 変換 - Movavi が豊富な機能をご用意いたします</u></a></li>
 </ul></div>
 

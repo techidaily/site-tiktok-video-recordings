@@ -1,7 +1,7 @@
 ---
 title: "The Freedom of Portability: Power, Networking, & Intel CPU Inside the Miniaturized Minisforum S100 PC"
-date: 2025-01-21T04:25:28.318Z
-updated: 2025-01-21T21:56:52.941Z
+date: 2025-01-23T18:52:06.157Z
+updated: 2025-01-29T20:12:28.693Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,17 +76,18 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-prime-picks-excellent-mac-based-video-snatchers-for-2024/"><u>[New] Prime Picks Excellent Mac-Based Video Snatchers for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-top-10-gamer-vloggers-on-tiktok-today/"><u>[Updated] In 2024, Top 10 Gamer Vloggers on TikTok Today</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-rev-up-your-social-media-impact-essential-hashtags-for-high-likes-and-follows-for-2024/"><u>[Updated] Rev Up Your Social Media Impact Essential Hashtags for High Likes and Follows for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-stepwise-voice-transformation-techniques-for-tiktokers/"><u>[Updated] Stepwise Voice Transformation Techniques for TikTokers</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-sculpting-an-impactful-tiktok-conclusion/"><u>2024 Approved Sculpting an Impactful TikTok Conclusion</u></a></li>
-<li><a href="https://win-answers.techidaily.com/beat-the-battlefield-a-step-by-step-guide-to-correcting-warzone-directx-issues-fast/"><u>Beat the Battlefield: A Step-by-Step Guide to Correcting Warzone DirectX Issues Fast</u></a></li>
-<li><a href="https://win-blog.techidaily.com/bypassing-technical-glitches-expert-solutions-for-continuous-play-in-modern-warfare-2-on-pc/"><u>Bypassing Technical Glitches: Expert Solutions for Continuous Play in Modern Warfare 2 on PC</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/designing-an-eye-catching-tiktok-finale-scene/"><u>Designing an Eye-Catching TikTok Finale Scene</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/discover-the-power-of-personalized-vocal-effects-in-tiktok-videos/"><u>Discover the Power of Personalized Vocal Effects in TikTok Videos</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-infinix-smart-8-plus-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Infinix Smart 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://win-advanced.techidaily.com/troubleshooting-your-pcs-audio-hardware-a-guide-to-diagnosing-your-sound-card-yl-computing-solutions/"><u>Troubleshooting Your PC's Audio Hardware: A Guide to Diagnosing Your Sound Card - YL Computing Solutions</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-honor-x50-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Honor X50 Phones</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-discovering-top-10-must-watch-business-video-hubs/"><u>[New] 2024 Approved Discovering Top 10 Must-Watch Business Video Hubs</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-commanding-voice-performance-analysis-edition-8-for-2024/"><u>[New] Commanding Voice Performance Analysis, Edition 8 for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-the-ultimate-guide-to-capturing-stunning-time-lapses-on-galaxys/"><u>[New] In 2024, The Ultimate Guide to Capturing Stunning Time-Lapses on Galaxys</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-mastering-the-art-of-social-media-top-7-essential-tiktok-emojis/"><u>[Updated] 2024 Approved Mastering the Art of Social Media Top 7 Essential TikTok Emojis</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-the-ultimate-user-friendly-untangle-for-youtube-earnings-assessment/"><u>[Updated] 2024 Approved The Ultimate User-Friendly Untangle for YouTube Earnings Assessment</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-free-effortless-top-6-online-tiktop-to-mp3-transformation-apps-for-2024/"><u>[Updated] Free, Effortless Top 6 Online TikTop To MP3 Transformation Apps for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-from-idea-to-screenshot-a-mac-guide-to-ootd-tiktoks-for-2024/"><u>[Updated] From Idea to Screenshot A Mac Guide to OOTD TikToks for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-harness-quick-download-powers-for-tiktok-videos/"><u>[Updated] Harness Quick-Download Powers for TikTok Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-breaking-the-ice-a-guide-to-crafting-strikingly-effective-tiktok-captions/"><u>[Updated] In 2024, Breaking the Ice A Guide to Crafting Strikingly Effective TikTok Captions</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-social-networking-site-policies-what-about-posting-videos/"><u>[Updated] In 2024, Social Networking Site Policies What About Posting Videos?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unlocking-viral-success-a-guide-to-tiktok-editing-mastery-for-2024/"><u>[Updated] Unlocking Viral Success A Guide to TikTok Editing Mastery for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-sound-issues-on-new-world-strategies-and-techniques-to-enhance-your-gaming-experience/"><u>Fixing Sound Issues on 'New World': Strategies and Techniques to Enhance Your Gaming Experience</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-accessible-no-cost-tools-to-craft-professional-slideshows/"><u>In 2024, Accessible, No-Cost Tools to Craft Professional Slideshows</u></a></li>
 </ul></div>
 
