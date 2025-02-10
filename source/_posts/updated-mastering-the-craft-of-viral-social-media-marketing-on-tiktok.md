@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering the Craft of Viral Social Media Marketing on TikTok"
-date: 2025-01-26T17:09:43.705Z
-updated: 2025-01-29T21:42:32.859Z
+date: 2025-02-06T08:18:20.362Z
+updated: 2025-02-10T01:51:21.256Z
 tags:
   - ai video
   - ai tiktok
@@ -46,7 +46,7 @@ The question now is who needs to invest in TikTok advertisement? Brands with a r
 * Brands hoping to build a strong presence in Africa, the Middle East, or Asia
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Types of TikTok ads/TikTok Brand Campaigns
@@ -67,23 +67,19 @@ Videos here run from 5-60 seconds. Just as the image ads, they also include a br
 
 ![tiktok video ads](https://images.wondershare.com/filmora/article-images/2021/tiktok-video-ads.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Source: blog.hootsuite.com
 
 ### 4\. Spark ads
 
 They allow your brand to boost organic content from other users or your account. Research conducted by TikTok has shown that these types of ads have a 24% higher competition rate and a 142% higher engagement rate than In-Feed ads.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Pangle Ads
 
 They include Ads placed through the TikTok Audience Network.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6\. Carousel ads
 
@@ -92,7 +88,7 @@ It only runs in TikTok's News Feed apps, including 10 images with unique caption
 ![tiktok carousel ads](https://images.wondershare.com/filmora/article-images/2021/tiktok-carousel-ads.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Source: blog.hootsuite.com
@@ -103,23 +99,19 @@ Source: blog.hootsuite.com
 
 ![netflix tiktok campaign](https://images.wondershare.com/filmora/article-images/2021/netflix-tiktok-campaign.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Source: mediakix.com
 
 Research has shown Netflix to be the second most followed brand behind Flighthouse on TikTok. Netflix has a massive pool of original content. The majority of the clips consist of interviews with actors, humorous skits, and video clips from the latest shows. Averagely three posts are posted on TikTok by Netflix within a day. The videos gain an average of over one million followers monthly.
 
 The leading advertiser on TikTok is Netflix and produces one extensive scale TikTok campaign on average every month. For them, User-generated content has worked very well. Their #WhatsYourPower AR branded effect got used by over 112,000 people. It is likely the most significant amount of U.G.C. for any brand on TikTok so far.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2. E.L.F COSMETICS SETS TRENDS WITH TIKTOK LIVE
 
 ![elf cosmetics tiktok campaign](https://images.wondershare.com/filmora/article-images/2021/elf-cosmetics-tiktok-campaign.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Cosmetic brand e.l.f. is a frontrunner in the best beauty brands on successful TikTok campaign examples. It is one of the first beauty brands to market through TikTok. The beauty brand recently created an NFT collection that promotes cryptocurrency, and the group launched its Twitch channel.
 
@@ -130,6 +122,10 @@ Cosmetic brand e.l.f. is a frontrunner in the best beauty brands on successful T
 Amazon understands marketing, so they use the TikTok influence to market their services with five accounts on TikTok run by Amazon. The five accounts are @amazonprimevideo, @amazonmusic,@amazonfashion, @amazon, and @primestudent. Among the five, Amazon Prime Video has the most followers, over 6.7M followers. The brand can launch great, traditional ads, and they have occasionally done that.
 
 Amazon is the third most hashtag-challenged brand on TikTok, with Netflix and Kraft Foods leading the pack. They recognize influencers' potential, which is why they partnered with over 40 micro and mega influencers in a single Amazon Fashion campaign as one of the best TikTok campaign ideas to carry their #PajamaJam challenge to the next level.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4. GYMSHARK SETS THE BAR FOR FITNESS ON TIKTOK AS AN EARLY ADOPTER
 
@@ -143,19 +139,15 @@ The brand posts high-quality videos consistently and has a good understanding of
 
 ![marc Jacobs tiktok](https://images.wondershare.com/filmora/article-images/2021/marc-jacobs-tiktok-campaign.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Marc Jacobs mastered the art of TikTok duets and TikTok brand campaigns and propelled it to be one of the most followed brands on TikTok. The question is, how did this come to pass? The company launches branded Hashtag Challenges in the form of TikTok adverts, and each time, the TikTok duet feature is utilized. Their #PerfectAsIAm campaign, which constituted duets with Rickey Thompson and other three influencers in summer 2020, ended with 10.4B views. The brand followed up with a second #PerfectAsWeAre campaign in June 202\. The challenge aimed at encouraging self-love, celebrating pride and individuality. Three massive TikTok influencers JojoSiwa, Bretman Rock, and Rickey Thompson, were featured. Over 13.7 B views and more than 2,000K U.G.C. accumulated from their campaigns.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6. DUNKIN' WARMS UP TO GEN Z WITH CHARLI D'AMELIO
 
 ![dunkin tiktok](https://images.wondershare.com/filmora/article-images/2021/dunkin-tiktok-campaign.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Dunkin is undoubtedly one of the best food brands on TikTok. It has more than 21 million likes and over three million followers. Its popularity with Gen Z on TikTok comes from their endorsement with TikTok star Charli D'Amelio.
 
@@ -173,9 +165,17 @@ For comparison, Flighthouse has over one billion more likes than Michael Le, a T
 
 ![red bull tiktok](https://images.wondershare.com/filmora/article-images/2021/red-bull-tiktok-campaign.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 What brands do well on TikTok? Any brand which can provide entertainment can do well. Red Bull is one of the largest branded content producers. Red Bul has posted over 2,660 videos so far, which is much higher than Charli D'Amelio and Addison Rae, two of TikTok's most worthy influencers.
 
 There are an average of two posts made by Red Bull in a day and receive around 1.2 million likes every month. Much of its content is unique and also incorporates humor into its strategy. They share a hilarious flop for every terrifying trick. The trick has far been effective at ensuring their audience still has attention for them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9. BLUE DIAMOND ALMONDS SHOWS BRANDS IT'S NOT TOO LATE TO TRY TIKTOK
 
@@ -185,6 +185,10 @@ One of the newest brands in TikTok is the Blue Diamond Almonds brand, wherein a 
 
 So far, it has received over 11.6 B views. After partnering with three food influencers, the #28XTREMES challenge got promoted. The sponsored video with food creator @colincreates received 322 likes and over 10.1M views, thus becoming his most viewed video ever. The most significant impact of its success is the evidence that nothing is too limited. With a good strategy, everything is possible.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 10. DICK'S SPORTING GOODS MAKES A GAMETIME DECISION WITH TIKTOK AD FEATURES
 
 ![dicks sporting tiktok](https://images.wondershare.com/filmora/article-images/2021/dicks-sporting-tiktok-campaign.jpg)
@@ -192,10 +196,6 @@ So far, it has received over 11.6 B views. After partnering with three food infl
 DICK's Sporting Goods does not have the most considerable TikTok presence as it only has around 42.1K followers. However, their efforts paid off when they tried experimenting with TikTok. #NewFitFeelin, their first Branded Hashtag challenge, involved six influencers and inspired 1,136 pieces of U.G.C. It came to pass without using any Branded Effects.
 
 They utilized TikTok's Branded Effect option during their second campaign, WelcomeBack. The campaign has accumulated 7,020 UGC despite being launched at the beginning of August 2021\. An impressive 500%+ rise in U.G.C. got recorded due to the Branded Effect usage.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Tips to Run an Excellent TikTok Ad Campaign
 
@@ -236,7 +236,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 ![filmorax boxpng ](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: Some FAQs about TikTok Campaigns
@@ -272,22 +272,20 @@ These examples of TikTok campaigns and TikTok campaigns indicate that we are in 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-why-do-my-photoshoot-videos-grind-to-a-halt/"><u>[New] 2024 Approved Why Do My Photoshoot Videos Grind to a Halt?</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-accelerating-videos-in-tiktok-quick-tips-for-2024/"><u>[New] Accelerating Videos in TikTok Quick Tips for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-architecting-an-inspiring-tiktok-conclusion/"><u>[New] Architecting an Inspiring TikTok Conclusion</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-how-to-make-money-on-tiktok-in-8-ways-for-2024/"><u>[New] How to Make Money on TikTok in 8 Ways for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-coordinated-duet-clips-with-tiktok-twist/"><u>[Updated] 2024 Approved Coordinated Duet Clips with TikTok Twist</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-innovating-your-ultimate-tiktok-seal/"><u>[Updated] 2024 Approved Innovating Your Ultimate TikTok Seal</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-build-your-brands-success-on-top-business-youtube-channels-for-2024/"><u>[Updated] Build Your Brand's Success on Top Business YouTube Channels for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-genuine-tiktok-following-where-to-safely-invest-yourself-for-2024/"><u>[Updated] Genuine TikTok Following Where to Safely Invest Yourself for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-essential-guidelines-for-tiktok-web-on-a-mac/"><u>[Updated] In 2024, Essential Guidelines for TikTok Web on a Mac</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-quick-tips-altering-video-pace-in-instagram-stories/"><u>[Updated] Quick Tips Altering Video Pace in Instagram Stories</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-full-exploration-of-the-sj7s-high-definition-star-cameras-for-action/"><u>2024 Approved Full Exploration of the SJ7's High-Definition Star Cameras for Action</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/effective-strategies-for-retrieving-data-from-ios-17-upgraded-iphones-and-ipads/"><u>Effective Strategies for Retrieving Data From iOS 17-Upgraded iPhones and iPads</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/eliminate-paperjam-error-by-deleting-printer/"><u>Eliminate PaperJam Error by Deleting Printer</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-mastering-hdr-photography-your-essential-list/"><u>In 2024, Mastering HDR Photography Your Essential List</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-tips-for-perfectly-timed-tiktok-video-captions/"><u>In 2024, Tips for Perfectly Timed TikTok Video Captions</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/troubleshooting-apex-legends-connectivity-errors-effectively/"><u>Troubleshooting Apex Legends Connectivity Errors Effectively</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlock-your-motorola-defy-2s-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Motorola Defy 2s Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/2024-tips-how-to-fix-bluetooth-not-pairing-on-windows-11/"><u>[2024 Tips] How to Fix Bluetooth Not Pairing on Windows 11</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-devising-a-personalized-tiktok-alphanumeric-marker-for-2024/"><u>[New] Devising a Personalized TikTok Alphanumeric Marker for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-bypass-the-hidden-shadowban-on-tiktok/"><u>[New] In 2024, Bypass the Hidden Shadowban on TikTok</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-correcting-time-jumps-fixing-obs-studio-problems/"><u>[Updated] 2024 Approved Correcting Time Jumps Fixing OBS Studio Problems</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-ignite-creativity-and-virality-top-50plus-inspirational-quotes-for-tiktok/"><u>[Updated] 2024 Approved Ignite Creativity & Virality Top 50+ Inspirational Quotes for TikTok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-elevate-your-creative-expression-with-smart-caption-techniques-for-tiktoks-for-2024/"><u>[Updated] Elevate Your Creative Expression with Smart Caption Techniques for TikToks for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-engage-and-grow-a-curated-list-of-popular-tiktok-hashes/"><u>[Updated] Engage and Grow A Curated List of Popular TikTok Hashes</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-the-complete-guide-to-adjusting-your-tiktok-voice-for-2024/"><u>[Updated] The Complete Guide to Adjusting Your TikTok Voice for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-enhancing-online-presence-obs-and-facebook-synergy/"><u>2024 Approved Enhancing Online Presence OBS & Facebook Synergy</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/a-guide-itel-p55plus-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Itel P55+ Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/download-macx-ultimate-mac-compatible-software-for-free-dvd-ripping-and-transferring-content-to-itunes-and-ios-devices/"><u>Download MacX - Ultimate Mac Compatible Software for FREE DVD Ripping & Transferring Content to iTunes & iOS Devices</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-earn-big-fast-the-ultimate-guide-to-tiktoks-wealth-generation-8-strategies/"><u>In 2024, Earn Big, Fast The Ultimate Guide to TikTok's Wealth Generation (8 Strategies)</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-share-on-apple-iphone-xr-drfone-by-drfone-ios/"><u>In 2024, How to Screen Share on Apple iPhone XR? | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-effortless-gopro-video-editing-a-step-by-step-guide/"><u>New Effortless GoPro Video Editing A Step-by-Step Guide</u></a></li>
+<li><a href="https://win-able.techidaily.com/untangling-connectivity-issues-a-guide-to-solving-hitman-3-errors/"><u>Untangling Connectivity Issues: A Guide to Solving Hitman 3 Errors</u></a></li>
 </ul></div>
 

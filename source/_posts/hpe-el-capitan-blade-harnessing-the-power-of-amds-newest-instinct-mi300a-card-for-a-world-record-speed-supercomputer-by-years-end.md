@@ -1,7 +1,7 @@
 ---
 title: "HPE El Capitan Blade: Harnessing the Power of AMD's Newest Instinct MI300A Card for a World Record Speed Supercomputer by Year's End"
-date: 2025-01-23T16:45:45.704Z
-updated: 2025-01-29T17:37:02.922Z
+date: 2025-02-03T07:55:17.429Z
+updated: 2025-02-09T17:31:10.955Z
 tags:
   - desktop
 categories:
@@ -55,7 +55,7 @@ __Ayaneo Retro Mini PC AM01 Specification__
  That said, if Ayaneo's successful[Indiegogo campaign](https://www.indiegogo.com/projects/ayaneo-retro-mini-pc-creator-of-mini-pc-2-0-era#/) proved anything, it's that users are willing to pay for a fun retro design despite potential trade-offs —[nostalgia is always a great way](https://www.tomshardware.com/peripherals/mechanical-keyboards/grab-this-cool-retro-console-inspired-keyboard-for-just-dollar83) to get people to buy something.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -81,20 +81,24 @@ __Ayaneo Retro Mini PC AM01 Specification__
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-the-infographic-lens-on-2017s-youtube-numerical-truths/"><u>[New] 2024 Approved The Infographic Lens on 2017'S Youtube Numerical Truths</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-tiktok-trends-hit-amazon-your-must-have-list/"><u>[New] 2024 Approved TikTok Trends Hit Amazon - Your Must-Have List</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-unlock-tiktok-a-macbook-users-guide/"><u>[New] 2024 Approved Unlock TikTok A MacBook User's Guide</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-8-sites-to-download-free-green-screen-backgrounds-and-footage/"><u>[Updated] In 2024, 8 Sites to Download Free Green Screen Backgrounds and Footage</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-tapping-into-trends-your-guide-to-impactful-instagram-tags/"><u>[Updated] In 2024, Tapping Into Trends Your Guide to Impactful Instagram Tags</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-top-10-screen-free-android-apps-for-leisurely-gaming/"><u>[Updated] In 2024, Top 10 Screen-Free Android Apps for Leisurely Gaming</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-copyright-quest-for-content-creators-tiktok-edition/"><u>2024 Approved Copyright Quest for Content Creators (TikTok Edition)</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/creating-ootd-masterpieces-for-tiktok-with-macos/"><u>Creating OOTD Masterpieces for TikTok with MacOS</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/find-your-perfect-tiktok-video-explore-the-best-10-free-mac-compatible-editing-apps-for-2024/"><u>Find Your Perfect TikTok Video - Explore the Best 10 Free, Mac-Compatible Editing Apps for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/from-clicks-to-coins-mastering-the-art-of-earnings-through-fb-videos-for-2024/"><u>From Clicks to Coins Mastering the Art of Earnings Through FB Videos for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/in-2024-mac-video-editing-made-easy-yosemite-edition/"><u>In 2024, Mac Video Editing Made Easy Yosemite Edition</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-making-memorable-content-a-macos-approach-to-ootds/"><u>In 2024, Making Memorable Content A MacOS Approach to OOTDs</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-mastering-movies-the-best-of-viral-tiktok-creations-top-10/"><u>In 2024, Mastering Movies The Best of Viral TikTok Creations (Top 10)</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/leading-picture-data-holders/"><u>Leading Picture Data Holders</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/strategic-insights-into-youtubes-adsense-earnings-by-thousand-viewers-for-2024/"><u>Strategic Insights Into Youtube's AdSense Earnings by Thousand Viewers for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-5-elite-apps-for-creating-gifs-from-tiktok-videos-quickly/"><u>[New] 2024 Approved 5 Elite Apps for Creating GIFs From TikTok Videos Quickly</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-illuminating-path-to-stellar-android-video-quality/"><u>[New] Illuminating Path to Stellar Android Video Quality</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-the-art-of-tiktok-expression-top-7-emoji-guide-for-2024/"><u>[New] Mastering the Art of TikTok Expression Top 7 Emoji Guide for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-3-part-blueprint-to-monitor-and-maximize-your-youtube-profits/"><u>[Updated] 3-Part Blueprint to Monitor and Maximize Your YouTube Profits</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-add-chapters-to-youtube-videos/"><u>[Updated] How to Add Chapters to YouTube Videos</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-gourmet-grub-gurus-on-social-media/"><u>[Updated] In 2024, Gourmet Grub Gurus on Social Media</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-unlocking-the-door-to-joining-a-tiktok-gathering/"><u>[Updated] In 2024, Unlocking the Door to Joining a TikTok Gathering</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-the-ultimate-guide-to-in-frame-multimedia-experience-on-mac/"><u>[Updated] The Ultimate Guide to In-Frame Multimedia Experience on Mac</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-learn-quick-image-text-alteration-online-resources/"><u>2024 Approved Learn Quick Image Text Alteration Online Resources</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-mastering-the-art-of-speech-on-tiktok/"><u>2024 Approved Mastering the Art of Speech on TikTok</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/anglers-guide-to-premium-fishing-cameras-for-2024/"><u>Angler’s Guide to Premium Fishing Cameras for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/crafting-an-authentic-tiktok-conclusion-experience-for-2024/"><u>Crafting an Authentic TikTok Conclusion Experience for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-turn-off-find-my-apple-iphone-12-pro-when-phone-is-broken-by-drfone-ios/"><u>In 2024, How to Turn Off Find My Apple iPhone 12 Pro when Phone is Broken?</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/most-reliable-free-online-tools-for-tiktok-video-to-mp3-downloads/"><u>Most Reliable Free Online Tools for TikTok Video to MP3 Downloads</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/rapid-tiktok-video-loading-a-guide-for-2024/"><u>Rapid TikTok Video Loading A Guide for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/srt-conversion-made-easy-a-step-by-step-approach-for-2024/"><u>SRT Conversion Made Easy A Step-by-Step Approach for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-comprehensive-cheat-sheet-to-mastering-spotify-advertising-for-2024/"><u>The Comprehensive Cheat Sheet to Mastering Spotify Advertising for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/the-essential-tiktok-blueprint-adding-engaging-voiceovers/"><u>The Essential TikTok Blueprint Adding Engaging Voiceovers</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-debunking-digital-audio-studio-myths-the-truth-behind-daw/"><u>Updated 2024 Approved Debunking Digital Audio Studio Myths The Truth Behind DAW</u></a></li>
 </ul></div>
 
