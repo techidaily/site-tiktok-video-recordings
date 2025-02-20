@@ -1,7 +1,7 @@
 ---
 title: "Star Wars Fans Rejoice: AceMagic Raises the Stakes with Their New Mini Gaming Computer Shaped Like an X-Wing"
-date: 2025-02-08T23:18:17.452Z
-updated: 2025-02-10T06:18:24.147Z
+date: 2025-02-14T10:32:47.024Z
+updated: 2025-02-20T09:00:14.083Z
 tags:
   - desktop
 categories:
@@ -36,7 +36,7 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
  So, what happened? Did the static buildup short out the PC or something? Fortunately, nothing so mundane. Instead, the fan PC was tested at increasingly higher speeds until the[weighty cooler](https://www.tomshardware.com/news/noctua-fanless-cooler-enters-production) was violently flung from the PC in the last moments of the original video. No wonder Sodabaka hid behind a riot shield for much of the video demo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -62,24 +62,20 @@ Over on Chinese videosharing platform Bilibili, user 苏打baka uploaded a lengt
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-making-your-videoclips-stand-out-with-easy-text-addition/"><u>[New] 2024 Approved Making Your Videoclips Stand Out with Easy Text Addition</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-how-to-add-captions-on-tiktok-for-2024/"><u>[New] How to Add Captions on TikTok for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-gamers-gauntlet-bizarre-tiktok-games-you-must-try/"><u>[Updated] 2024 Approved Gamer's Gauntlet Bizarre TikTok Games You Must Try</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-laughter-in-the-clouds-iphone/"><u>[Updated] 2024 Approved Laughter in the Clouds (iPhone)</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-optimize-tiktok-videos-for-snappy-playback-times-for-2024/"><u>[Updated] Optimize TikTok Videos for Snappy Playback Times for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-the-right-way-to-increase-your-tiktok-followers-safely/"><u>2024 Approved The Right Way to Increase Your TikTok Followers Safely</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/before-you-invest-in-video-games-know-these-5-key-points-first/"><u>Before You Invest in Video Games, Know These 5 Key Points First!</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/deciphering-the-secrets-to-your-personalized-tiktok-code/"><u>Deciphering the Secrets to Your Personalized TikTok Code</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/discover-the-ultimate-chromebook-video-editors-your-guide-to-the-best-free-and-subscription-based-tools/"><u>Discover the Ultimate Chromebook Video Editors: Your Guide to the Best Free and Subscription-Based Tools</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-itel-s23-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Itel S23? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-motorola-edge-40-neomirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Motorola Edge 40 NeoMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/how-to-check-tiktok-video-copyright-before-uploading/"><u>How to Check Tiktok Video Copyright Before Uploading?</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-touch-screen-on-google-pixel-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Touch Screen on Google Pixel 8 | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-navigating-to-your-distinctive-tiktok-tag/"><u>In 2024, Navigating to Your Distinctive TikTok Tag</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-unveiling-the-game-changer-samsung-ue590-4k-monitor/"><u>In 2024, Unveiling the Game Changer - Samsung UE590 4K Monitor</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/perfecting-sound-on-snapchat-master-your-vocal-effects-in-minutes/"><u>Perfecting Sound on Snapchat Master Your Vocal Effects in Minutes</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/unlock-your-potential-in-english-mastery-with-top-9-tips-by-a-dedicated-esl-educator/"><u>Unlock Your Potential in English Mastery with Top 9 Tips by a Dedicated ESL Educator</u></a></li>
-<li><a href="https://app-tips.techidaily.com/your-windows-11-device-wont-be-supported-next-year-discover-five-essential-options-before-its-too-late-zdnet/"><u>Your Windows 11 Device Won't Be Supported Next Year. Discover Five Essential Options Before It's Too Late | ZDNET</u></a></li>
-<li><a href="https://win-dash.techidaily.com/1726030296467-bts/"><u>オンラインでBTS映像を保存するためのステップバイステップガイド</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-mastering-tiktoks-siri-speech-functionality/"><u>[New] 2024 Approved Mastering TikTok's Siri Speech Functionality</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-unveil-tiktoks-most-effective-typefaces-for-video-growth-this-year/"><u>[New] 2024 Approved Unveil TikTok's Most Effective Typefaces for Video Growth This Year</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-from-basics-to-breakthroughs-the-ultimate-strategy-for-youtube-advertising-success/"><u>[New] In 2024, From Basics to Breakthroughs The Ultimate Strategy for YouTube Advertising Success</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-packaging-growth-tactics/"><u>[New] Packaging Growth Tactics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/isualpuzzle-editor-for-2024/"><u>[New] VisualPuzzle Editor for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-navigating-the-networking-of-photos-from-iphone-to-snapchat/"><u>[Updated] 2024 Approved Navigating the Networking of Photos From iPhone to Snapchat</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-how-to-be-a-virtual-visitor-in-friendly-tiktok-streams/"><u>2024 Approved How to Be a Virtual Visitor in Friendly TikTok Streams</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-transform-tiktok-videos-with-our-select-best-font-tools-for-the-year-23/"><u>2024 Approved Transform TikTok Videos with Our Select Best Font Tools for the Year '23</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-xiaomi-redmi-13c-5g-frp-bypass-by-drfone-android/"><u>About Xiaomi Redmi 13C 5G FRP Bypass</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-nokia-c12-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Nokia C12 to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-essence-of-timelessness-instagrams-slow-motion-guide/"><u>In 2024, The Essence of Timelessness Instagram's Slow-Motion Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/inside-out-the-true-significance-behind-snapchats-emojis/"><u>Inside Out The True Significance Behind Snapchat's Emojis</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/master-tiktok-snap-enhancers-quickly-and-virally/"><u>Master TikTok Snap Enhancers Quickly & Virally</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/maximize-your-coding-skills-versatile-applications-for-chatgpts-programming-assistant/"><u>Maximize Your Coding Skills: Versatile Applications for ChatGPT's Programming Assistant</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/king-youtubes-potential-with-personalized-plays-for-2024/"><u>Unlocking Youtube’s Potential with Personalized Plays for 2024</u></a></li>
 </ul></div>
 

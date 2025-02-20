@@ -1,7 +1,7 @@
 ---
 title: Tech Giant HP Enterprise Takes China's Inspur to Court for Patent Breach While Maintaining U.S. Presence
-date: 2025-02-06T02:38:28.869Z
-updated: 2025-02-09T19:15:52.432Z
+date: 2025-02-13T02:16:42.649Z
+updated: 2025-02-20T01:48:18.304Z
 tags:
   - desktop
 categories:
@@ -50,7 +50,7 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -76,19 +76,20 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-comprehensive-guide-to-enhancing-tiktoks-adding-texts-professionally-for-2024/"><u>[New] Comprehensive Guide to Enhancing TikToks Adding Texts Professionally for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-crystal-clarity-in-depth-comparison-of-premium-8k-monitors-for-2024/"><u>[New] Crystal Clarity In-Depth Comparison of Premium 8K Monitors for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-master-your-tiktok-income-leading-money-calculators/"><u>[Updated] 2024 Approved Master Your TikTok Income Leading Money Calculators</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-elevating-video-previews-a-compreayer-approach-for-youtube-for-2024/"><u>[Updated] Elevating Video Previews A Compreayer Approach for YouTube for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-get-into-a-friends-live-showcase-effortlessly/"><u>[Updated] In 2024, Get Into a Friend's Live Showcase Effortlessly</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-sharing-is-caring-but-not-without-copyright-checks-tiktok/"><u>[Updated] Sharing Is Caring - But Not Without Copyright Checks (TikTok)</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-step-into-vr-wonderland-youtubes-finest-vr-content-list/"><u>2024 Approved Step Into VR Wonderland YouTube's Finest VR Content List</u></a></li>
-<li><a href="https://techtrends.techidaily.com/android-ioswindows13/"><u>自由選擇便利使用: Android, iOS及Windows上，13種優秀文字轉成語音器件</u></a></li>
-<li><a href="https://extra-information.techidaily.com/discovering-why-your-social-media-feed-freezes-and-how-to-fix-it/"><u>Discovering Why Your Social Media Feed Freezes and How to Fix It</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-spotlight-tiktok-trends-shaping-the-social-stage/"><u>In 2024, Spotlight TikTok Trends Shaping the Social Stage</u></a></li>
-<li><a href="https://solve-news.techidaily.com/les-meilleures-solutions-libres-pour-la-conversion-video-vers-format-mp4-guide-exhaustif/"><u>Les Meilleures Solutions Libres Pour La Conversion Vidéo Vers Format MP4: Guide Exhaustif</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/mastering-custom-interactions-with-gpt-3-top-5-techniques-revealed/"><u>Mastering Custom Interactions with GPT-3: Top 5 Techniques Revealed</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/remove-device-supervision-from-your-iphone-6s-plus-drfone-by-drfone-ios/"><u>Remove Device Supervision From your iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-realme-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Realme Phone Network-Ready</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-closing-the-distance-zoom-in-for-a-clearer-picture/"><u>[New] Closing the Distance Zoom in for a Clearer Picture</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-critical-considerations-for-successful-tiktok-use-on-macos/"><u>[New] Critical Considerations for Successful TikTok Use on macOS</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-explore-tiktoks-charms-7-most-popular-emojis-and-their-secrets-revealed/"><u>[New] Explore TikTok's Charms #7 Most Popular Emojis and Their Secrets Revealed</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-steps-for-controlling-video-comment-settings-in-youtube/"><u>[New] In 2024, Steps for Controlling Video Comment Settings in YouTube</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-synchronized-singing-in-a-single-take-for-2024/"><u>[New] Synchronized Singing in a Single Take for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-beat-fiends-exploring-the-most-popular-rap-songs-on-tiktok/"><u>[Updated] 2024 Approved Beat Fiends Exploring the Most Popular Rap Songs on TikTok</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-becoming-a-clone-mastermind-perfecting-the-copycat-artistry-on-tiktok/"><u>[Updated] 2024 Approved Becoming a Clone Mastermind Perfecting the Copycat Artistry on TikTok</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/avoid-download-hassle-top-5-online-converters-for-gif-to-video/"><u>Avoid Download Hassle Top 5 Online Converters for GIF to Video</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-overcome-issues-with-windows-and-system-event-services-connection/"><u>How to Overcome Issues with Windows and System Event Services Connection</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-bypass-icloud-activation-lock-with-imei-code-from-apple-iphone-14-pro-by-drfone-ios/"><u>In 2024, Bypass iCloud Activation Lock with IMEI Code From Apple iPhone 14 Pro</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-vivo-s17e-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Vivo S17e online without jailbreak</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-level-up-in-valorant-with-a-costless-cutting-edge-voice-modification-solution/"><u>In 2024, Level Up in Valorant with a Costless, Cutting-Edge Voice Modification Solution</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/pixelated-palace-beginner-friendly-home-design-guide/"><u>Pixelated Palace Beginner-Friendly Home Design Guide</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/professional-picture-taking-within-microsoft-teams/"><u>Professional Picture Taking Within Microsoft Teams</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/replicating-your-presence-the-essential-tiktok-clone-blueprint/"><u>Replicating Your Presence The Essential TikTok Clone Blueprint</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: Mastering PC Building Basics at Tom's Hardware Academy
-date: 2025-02-04T17:10:18.066Z
-updated: 2025-02-10T04:01:20.283Z
+date: 2025-02-12T18:22:49.390Z
+updated: 2025-02-19T20:12:21.474Z
 tags:
   - desktop
 categories:
@@ -42,7 +42,7 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
  We caught a first glimpse of the AtomMan X7 Ti[at CES 2024](https://www.tomshardware.com/desktops/mini-pcs/minisforum-first-intel-core-ultra-mini-pc-amd-rx-7600M-xt-mini-pc) when it was showcased with other interesting new computers like the Minisforum HX200G, Mini Workstation MS-01, and the[V3 tablet](https://www.tomshardware.com/tablets/minisforum-v3-tablet-arrives-the-worlds-first-amd-ryzen-7-8840u-powered-surface-clone) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -68,21 +68,16 @@ Mini PC specialist Minisforum has launched a new device, claiming several firsts
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-foremost-companies-pioneering-vr-technology/"><u>[New] Foremost Companies Pioneering VR Technology</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-the-essential-iphone-hdr-photography-skills/"><u>[New] The Essential iPhone HDR Photography Skills</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-top-30-anime-inspired-videos-reshaping-online-culture/"><u>[Updated] 2024 Approved Top 30 Anime-Inspired Videos Reshaping Online Culture</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-a-step-by-step-guide-to-your-first-twitter-profile-for-2024/"><u>[Updated] A Step-by-Step Guide to Your First Twitter Profile for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-perfect-your-tiktok-with-these-stitching-techniques/"><u>[Updated] Perfect Your TikTok With These Stitching Techniques</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-unlock-tiktoks-potential-with-our-sizzling-template-selection-for-2024/"><u>[Updated] Unlock TikTok’s Potential with Our Sizzling Template Selection for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-your-pathway-to-tiktok-live-spectatorship/"><u>[Updated] Your Pathway to TikTok Live Spectatorship</u></a></li>
-<li><a href="https://techidaily.com/hard-reset-samsung-galaxy-s21-fe-5g-2023-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Samsung Galaxy S21 FE 5G (2023) in 3 Efficient Ways | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-enhancing-playback-speed-in-tiktok-videos/"><u>In 2024, Enhancing Playback Speed in TikTok Videos</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-samsung-galaxy-f14-5g-device-by-drfone-android/"><u>In 2024, Mastering Android Device Manager The Ultimate Guide to Unlocking Your Samsung Galaxy F14 5G Device</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/samsung-galaxy-book-3-range-outperforms-older-model-with-doubled-sales-figures-the-key-reasons-explained/"><u>Samsung Galaxy Book 3 Range Outperforms Older Model with Doubled Sales Figures - The Key Reasons Explained</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/ultimate-guide-essential-french-expressions-for-exploring-france/"><u>Ultimate Guide: Essential French Expressions for Exploring France</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/ultimate-list-templates-for-youtube-previews-for-2024/"><u>Ultimate List Templates for YouTube Previews for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/unlocking-the-art-of-guesting-on-social-tiktok-lives/"><u>Unlocking the Art of Guesting on Social TikTok Lives</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/vocal-ensemble-in-the-digital-age-tiktok-edition-for-2024/"><u>Vocal Ensemble in the Digital Age TikTok Edition for 2024</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/wiederherstellung-verlorener-bilder-aus-dem-papierkorb-ihres-laptops-ein-umfassender-leitfaden/"><u>Wiederherstellung Verlorener Bilder Aus Dem Papierkorb Ihres Laptops – Ein Umfassender Leitfaden</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-build-a-facebook-image-tapestry-fast/"><u>[New] Build a Facebook Image Tapestry Fast</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-crafting-the-spoken-word-writing-compelling-narratives/"><u>[New] Crafting the Spoken Word Writing Compelling Narratives</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-premium-6-services-for-live-video-localization/"><u>[Updated] 2024 Approved Premium 6 Services for Live Video Localization</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/comprehensive-guide-to-permanently-sever-tiktok-connection-for-2024/"><u>Comprehensive Guide to Permanently Sever TikTok Connection for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-copyright-clearance-for-creative-uploads-on-tiktok/"><u>In 2024, Copyright Clearance for Creative Uploads on TikTok</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-expressing-thanks-top-outro-templates-collection/"><u>In 2024, Expressing Thanks Top Outro Templates Collection</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-unlocking-the-secrets-of-successful-tiktok-hashtags/"><u>In 2024, Unlocking the Secrets of Successful TikTok Hashtags</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/masterclass-in-capturing-video-frames/"><u>Masterclass in Capturing Video Frames</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/maximizing-your-tiktok-content-with-advanced-voice-controls-via-siri/"><u>Maximizing Your TikTok Content with Advanced Voice Controls via Siri</u></a></li>
+<li><a href="https://win-able.techidaily.com/rolling-into-victory-the-definitive-2024-roller-champions-pc-playbook-and-tactics-manual/"><u>Rolling Into Victory: The Definitive 2024 Roller Champions PC Playbook and Tactics Manual</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlock-your-tecno-spark-10c-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Tecno Spark 10C Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
 </ul></div>
 

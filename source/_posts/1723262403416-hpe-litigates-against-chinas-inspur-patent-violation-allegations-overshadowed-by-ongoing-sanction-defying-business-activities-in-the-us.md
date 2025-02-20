@@ -1,7 +1,7 @@
 ---
 title: "HPE Litigates Against China's Inspur: Patent Violation Allegations Overshadowed by Ongoing Sanction-Defying Business Activities in the U.S."
-date: 2025-02-05T18:37:41.899Z
-updated: 2025-02-10T04:22:56.485Z
+date: 2025-02-14T22:38:47.002Z
+updated: 2025-02-20T08:09:53.597Z
 tags:
   - desktop
 categories:
@@ -32,7 +32,7 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
  We think there is plenty of room for improvement on the 2022 winning throw. Remember, the world record distance for throwing a 16-pound shot put is nearly 75 feet. For another comparison, in the Swedish sport of Stångstörtning, a roughly 57-pound log is tossed, with the world record distance being 32 feet. Much will depend on how well-tuned and trained the WSTC 2024 athletes are…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
@@ -60,24 +60,24 @@ The 2024 World Server Throwing Championship (WSTC) organizers are[calling for en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-entering-a-friends-tiktok-live-a-step-by-step-guide/"><u>[New] 2024 Approved Entering a Friend's TikTok Live A Step-by-Step Guide</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-essential-tags-for-tiktok-fame-and-viral-potential/"><u>[New] 2024 Approved Essential Tags for TikTok Fame and Viral Potential</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-captivating-anime-concepts-that-topped-the-tiktok-list-for-2024/"><u>[New] Captivating Anime Concepts that Topped the TikTok List for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-enhance-your-videos-top-10-free-tiktok-edits-available-on-mac-for-2024/"><u>[New] Enhance Your Videos - Top 10 Free TikTok Edits Available on Mac for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-transform-your-tiktok-videos-stunning-templates-at-hand/"><u>[New] In 2024, Transform Your TikTok Videos Stunning Templates at Hand</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-maximize-impact-50plus-most-used-tags-on-tiktok-today/"><u>[New] Maximize Impact 50+ Most-Used Tags on TikTok Today</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-samsung-galaxy-a15-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Samsung Galaxy A15 5G without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/ceasing-voice-activated-ai-on-windows-11/"><u>Ceasing Voice-Activated AI on Windows 11</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/crafting-prime-tiktok-openings-using-macos-for-2024/"><u>Crafting Prime TikTok Openings Using MacOS for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/effortless-ootd-videography-for-mac-users-on-tiktok-for-2024/"><u>Effortless OOTD Videography for Mac Users on TikTok for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/elevate-your-tiktok-videos-speedy-filming-secrets/"><u>Elevate Your TikTok Videos Speedy Filming Secrets</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/expert-strategies-for-crafting-a-trusted-contacts-list-in-googles-mail-service/"><u>Expert Strategies for Crafting a Trusted Contacts List in Google's Mail Service</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/filmora-promo-code-alert-no-need-to-scour-reddit/"><u>Filmora Promo Code Alert No Need to Scour Reddit</u></a></li>
-<li><a href="https://article-files.techidaily.com/how-to-make-your-solitary-voice-resonate/"><u>How To Make Your Solitary Voice Resonate</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-to-use-gpt-3-with-python/"><u>How to Use GPT-3 With Python</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-poco-x6-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Poco X6 to Another | Dr.fone</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/interactive-content-the-key-to-boosted-facebook-pages/"><u>Interactive Content The Key to Boosted Facebook Pages</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nail-wizardry-top-8-tools-to-boost-view-counts/"><u>Thumbnail Wizardry Top 8 Tools to Boost View Counts</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-2024-approved-the-best-text-to-audio-converters-of-all-times/"><u>Updated 2024 Approved The Best Text-to-Audio Converters of All Times</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-key-10-windows-software-for-superior-tiktok-editing/"><u>[Updated] 2024 Approved Key 10 Windows Software for Superior TikTok Editing</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-amp-up-your-tiktok-profile-with-distinctive-pfp-concepts-for-2024/"><u>[Updated] Amp up Your TikTok Profile with Distinctive PFP Concepts for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-a-new-era-for-content-creators-non-tiktok-alternatives-unveiled/"><u>[Updated] In 2024, A New Era for Content Creators Non-TikTok Alternatives Unveiled</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-absurd-adventures-your-guide-to-wildest-tiktok-gaming-escapades/"><u>[Updated] In 2024, Absurd Adventures Your Guide to Wildest TikTok Gaming Escapades</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-elite-tiktok-editors-for-windows-users/"><u>[Updated] In 2024, Elite TikTok Editors For Windows Users</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-how-to-make-money-on-tiktok-in-8-ways-cannot-miss/"><u>[Updated] In 2024, How to Make Money on TikTok in 8 Ways [Cannot Miss]</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-navigating-a-new-digital-landscape-detailed-steps-for-updating-tiktok-handle/"><u>[Updated] In 2024, Navigating a New Digital Landscape Detailed Steps for Updating TikTok Handle</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-reign-at-the-top-the-best-tiktok-typography-for-maximum-engagement/"><u>[Updated] In 2024, Reign at the Top The Best TikTok Typography for Maximum Engagement</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-the-ultimate-list-of-tiktok-influencers-for-momentum/"><u>[Updated] In 2024, The Ultimate List of TikTok Influencers for Momentum</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-photo-cropping-apps-how-to-crop-photos-on-iphone-for-2024/"><u>[Updated] Photo Cropping Apps How to Crop Photos on iPhone for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-sustainable-growth-developing-a-long-term-personal-brand-on-youtube-for-2024/"><u>[Updated] Sustainable Growth Developing a Long-Term Personal Brand on YouTube for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-boosting-vfx-efficiency-with-free-lut-downloads/"><u>2024 Approved Boosting VFX Efficiency with FREE LUT Downloads</u></a></li>
+<li><a href="https://win-top.techidaily.com/1728473205297-windows-11onedrive/"><u>您好，想在Windows 11系统中关闭OneDrive的云端同步？请参考本指南！</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/a-step-by-step-approach-for-creating-and-merging-stunning-hdr-photos/"><u>A Step-by-Step Approach for Creating & Merging Stunning HDR Photos</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comprehensive-strategies-to-drop-multiple-geo-tags-in-google-maps/"><u>Comprehensive Strategies to Drop Multiple Geo-Tags in Google Maps</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/enhance-your-singing-experience-with-personalized-karaoke-visuals-how-to-add-custom-background-imagery-in-pcdj/"><u>Enhance Your Singing Experience with Personalized Karaoke Visuals: How to Add Custom Background Imagery in PCDJ</u></a></li>
+<li><a href="https://video-capture.techidaily.com/expert-picks-5-superior-video-call-recording-tools-for-2024/"><u>Expert Picks 5 Superior Video Call Recording Tools for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-11-pro-max-to-other-iphone-13-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 11 Pro Max To Other iPhone 13 devices? | Dr.fone</u></a></li>
+<li><a href="https://discover-help.techidaily.com/verfahren-zur-wiedergewinnung-verlorener-daten-auf-formatierten-externspeichern/"><u>Verfahren Zur Wiedergewinnung Verlorener Daten Auf Formatierten Externspeichern</u></a></li>
 </ul></div>
 
